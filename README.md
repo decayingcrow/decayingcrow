@@ -17,7 +17,7 @@
 
 feel free to interact, idm
 
-<a href="(https://pronouns.cc/@decayingcrow)">pronouns.cc</a>
+<a href="[prns](https://pronouns.cc/@decayingcrow)"></a>
 
 </div>
 
