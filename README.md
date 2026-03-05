@@ -13,9 +13,11 @@
 
 <div align="center"> 
 
-not really active on ponytown
+  ۫  ⊹     proshitters and under 13 dni   ﹒
 
-proshitters and under 13 dni
+feel free to interact, idm
+
+<div align="center"><a href="(https://pronouns.cc/@decayingcrow)">pronouns.cc</a></div>
 
 </div>
 
