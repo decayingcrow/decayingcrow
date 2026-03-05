@@ -6,7 +6,7 @@
 
 𓎟   　he 　crow 　it 　ᵕ　₊
 
-⏜‎‎　artist ¹ ˘ adult ²　🪶 ⠀⠀ ⏖　　
+⏜‎‎　artist ¹ ˘ 9teen ²　🪶 ⠀⠀ ⏖　　
 
 ꪆ୧ ‎ ‎‎ ‎ ‎ ♡ ‎ ‎‎ ‎ ‎ . ‎ ‎‎ ‎ ‎ i love my boyfriend ‎ ‎‎ ‎ ‎ ꒰ ‎ ‎‎ 10.19.24
 </div>
