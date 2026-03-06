@@ -15,7 +15,7 @@
 
   ۫  ⊹   　　proshitters and under 13 dni　　   ﹒
 
-feel free to interact, idm
+feel free to interact however you want, idm
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
 
