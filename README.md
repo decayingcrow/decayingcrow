@@ -14,14 +14,13 @@
 
 ⏜‎‎　artist ¹ ˘ 9teen ²　🪶 ⠀⠀ ⏖　　
 
-ꪆ୧ ‎ ‎‎ ‎ ‎ ♡ ‎ ‎‎ ‎ ‎ . ‎ ‎‎ ‎ ‎ i love my boyfriend ‎ ‎‎ ‎ ‎ ꒰ ‎ ‎‎ 10.19.24
 </div>
 
 <div align="center"> 
 
   ۫  ⊹   　　proshitters and under 13 dni　　   ﹒
 
-feel free to interact however you want, idm
+c+h ok, interact how you want idm
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
 
