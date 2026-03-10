@@ -20,6 +20,8 @@
 
   ۫  ⊹   　　proshitters and under 13 dni　　   ﹒
 
+  pls ask me about my OCs i love them dearly
+
 c+h ok, interact how you want idm
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
