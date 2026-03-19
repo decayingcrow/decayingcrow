@@ -6,8 +6,6 @@
 
   ۫  ⊹   　　proshitters and under 13 dni　　   ﹒
 
-  pls ask me about my OCs i love them dearly
-
 interact how you want just always iwc since im pretty sensitive to a lot of things
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
