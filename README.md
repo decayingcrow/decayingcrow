@@ -6,7 +6,8 @@
 
   ۫  ⊹   　　proshitters and under 13 dni　　   ﹒
 
-interact how you want just always iwc since im pretty sensitive to a lot of things
+interact how you want just always interact with caution
+i have diagnosed anxiety/social anxiety so im pretty sensitive to a lot of things
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
 
