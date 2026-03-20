@@ -16,6 +16,7 @@ interact how you want just always interact with caution
 </div>
 
 <div align="center">
+ 
 i have diagnosed anxiety/social anxiety and adhd so im pretty sensitive to a lot of things
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
