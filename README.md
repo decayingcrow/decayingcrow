@@ -4,7 +4,7 @@
 
 <div align="center"> 
 
-  ۫  ⊹   　　proshitters and under 13 dni　　   ﹒
+  ۫  ⊹   　　proshitters profic or the  other shits dni　　   ﹒
 
   <div align="center"> 
 
