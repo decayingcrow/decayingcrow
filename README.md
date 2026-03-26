@@ -1,32 +1,13 @@
- ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎‎‎ ‎ ‎ 　 ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ 　 ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ 　 ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ 　 ‎ ‎‎ ‎  ‎‎‎ ‎ ‎ 　 ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ 　 ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ 　 ‎ ‎‎ ‎ ‎  ‎ 
- <div align="center"><img src="https://i.ibb.co/V0WjKb9W/Untitled861-20260319182756.png" style="width:700px;height:550px;"></div>
+<div align="center"><img src="https://i.ibb.co/V0WjKb9W/Untitled861-20260319182756.png" style="width:700px;height:550px;"></div>
 <div>  　 </div>
 
 <div align="center"> 
 
-  ۫  ⊹   　　proshitters profic or the  other shits dni　　   ﹒
-
-  <div align="center"> 
-
-   selfcest mfs also dni please especially any type of stridercest
-   
-  </div>
-
-interact how you want just always interact with caution
-</div>
-
-<div align="center">
- 
-i have diagnosed anxiety/social anxiety and adhd so im pretty sensitive to a lot of things
+everything is a wip but check out my pronouns.cc that has all the stuff about me
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
-
-</div>
-
-
-<div align="right">
-
-<div>  　 </div>
+   
+  </div>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
