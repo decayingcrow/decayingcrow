@@ -3,7 +3,7 @@
 
 <div align="center"> 
 
-everything is a wip but check out my pronouns.cc that has all the stuff about me
+everything is a wip but check out my pronouns.cc that has all the stuff about me for now
 
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
    
