@@ -3,11 +3,7 @@
 
 <div align="center"><img src="https://i.ibb.co/V0WjKb9W/Untitled861-20260319182756.png" style="width:700px;height:550px;"></div>
 <div>  　 </div>
-
 <div align="center"> 
-
-everything is a wip but check out my pronouns.cc that has all the stuff about me for now
-
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
    
   </div>
