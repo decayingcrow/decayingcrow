@@ -6,7 +6,7 @@
 
 <div align="center">
 
-all info about me below ok
+all info about me below
    
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
 
