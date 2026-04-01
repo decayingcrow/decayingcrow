@@ -6,6 +6,8 @@
 
 <div align="center">
 
+stridercest PLEASE DNI OH MY GOD. i WILL block you and tell you straight up that youre weird.
+
 all info about me below
    
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
