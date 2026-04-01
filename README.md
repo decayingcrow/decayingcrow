@@ -10,6 +10,8 @@ all info about me below
    
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
 
+i eat, sleep, drink, and breathe the crane wives
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
    
   </div>
