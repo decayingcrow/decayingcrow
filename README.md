@@ -1,4 +1,6 @@
-<div align="center"><img src="https://64.media.tumblr.com/3db5e942e50fbd272fde08c73fda7405/f85a1bda7051e8af-39/s640x960/021ad430ddd1e4feb787737e4736081127b8128e.pnj" style="width:1000px;height:40px;"></div>
+wip ok
+
+<div align="center"><img src="https://64.media.tumblr.com/edb5a919ad5ae4df37aa90550bb0bd8d/0076baddc1efebbd-8c/s2048x3072/2e252f1a12fd02355c644641b941b64d445a6063.pnj" style="width:1000px;height:300px;"></div>
 <div>  　 </div>
 
 <div align="center"><img src="https://i.ibb.co/V0WjKb9W/Untitled861-20260319182756.png" style="width:700px;height:550px;"></div>
@@ -19,4 +21,4 @@ i eat, sleep, drink, and breathe the crane wives
   </div>
 
 <div>  　 </div>
-<div align="center"><img src="https://64.media.tumblr.com/45b0e7c864fbc8b065fd96b5ad81efe3/f85a1bda7051e8af-ac/s640x960/8bed2a4e9ecfd3498a735f930c16971f775cda64.pnj" style="width:1000px;height:40px;"></div>
+<div align="center"><img src="https://64.media.tumblr.com/f313ef6178ee7be9ec8a497d79bc68cb/0076baddc1efebbd-ee/s2048x3072/10d4389b14ce70697f26055748b70d14a7f2b54a.pnj" style="width:1000px;height:300px;"></div>
