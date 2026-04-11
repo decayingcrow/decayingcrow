@@ -11,9 +11,11 @@
 
 image is a placeholder for now
 
-my name is davesprite - i am a heavy davesprite fictionkin/copinglink
+my name is davesprite
 
 i use he crow it pronouns and im nonbinary and gay
+
+im neurodivergent and my main interests right now are homestuck, no more heroes and animatronics
 
 more info abt me below
    
