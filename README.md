@@ -1,14 +1,19 @@
-wip ok
-
 <div align="center"><img src="https://64.media.tumblr.com/edb5a919ad5ae4df37aa90550bb0bd8d/0076baddc1efebbd-8c/s2048x3072/2e252f1a12fd02355c644641b941b64d445a6063.pnj" style="width:1000px;height:300px;"></div>
 <div>  　 </div>
 
-<div align="center"><img src="https://i.ibb.co/V0WjKb9W/Untitled861-20260319182756.png" style="width:700px;height:550px;"></div>
+<div align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&pause=1000&color=970000&center=true&width=435&lines=+%E2%99%AB%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80are+you+man+enough%E2%A0%80%E2%A0%80.+.+.;+%E2%A0%80%E2%A0%80%E2%A0%80to+take+the+blame+for+this%E2%A0%80%E2%A0%80%3F%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
+<div>  　 </div>
+
+<div align="center"><img src="https://i.ibb.co/pjBSKcZ8/if-whatsapp-was-in-no-more-heroes-3.jpg" style="width:700px;height:550px;"></div>
 <div>  　 </div>
 
 <div align="center">
 
-i speak english and spanish
+image is a placeholder for now
+
+my name is davesprite - i am a heavy davesprite fictionkin/copinglink
+
+i use he crow it pronouns and im nonbinary and gay
 
 all info about me below
    
