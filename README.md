@@ -26,6 +26,8 @@ this is my goth lesbian daughter i love her the most
 
 <div align="center"><a href="https://toyhou.se/31705555.katherine"><img src="https://i.ibb.co/qL9y7pgP/115789437-DJ33omvsoq6a9m-B.png" style="width:400px;height:400px;"></div>
 
+click her to see her toyhou.se profile
+
 more info abt me below
    
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
