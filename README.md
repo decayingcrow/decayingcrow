@@ -15,7 +15,7 @@ my name is davesprite - i am a heavy davesprite fictionkin/copinglink
 
 i use he crow it pronouns and im nonbinary and gay
 
-all info about me below
+more info abt me below
    
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
 
