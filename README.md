@@ -12,7 +12,7 @@
 
 <div align="center">
 
-image is a placeholder for now, ill finish my profile later
+image is a placeholder for now ok i dont have another image on hand, ill finish my profile later
 
 my name is davesprite
 
