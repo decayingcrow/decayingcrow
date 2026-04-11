@@ -16,7 +16,7 @@ image is a placeholder for now ok i dont have another image on hand, ill finish 
 
 my name is davesprite
 
-i use he crow it pronouns and im nonbinary and gay
+i use he crow it pronouns and im nonbinary and mega gay for my handsome boyfriend hi owen
 
 im neurodivergent and my main interests right now are homestuck, no more heroes and animatronics
 
