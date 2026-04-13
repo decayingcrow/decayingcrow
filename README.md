@@ -22,6 +22,8 @@ i speak english and spanish ok
 
 im neurodivergent and my main interests right now are homestuck, no more heroes and animatronics
 
+im so awesome and cool ok
+
 i also draw and really love my ocs
 
 this is my goth lesbian daughter i love her the most
