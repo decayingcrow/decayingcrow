@@ -18,7 +18,7 @@ my name is davesprite
 
 i use he crow it pronouns and im nonbinary and mega gay for my dumbass boyfriend
 
-i speak english and spanish ok
+im nineteen and i speak english and spanish ok
 
 im neurodivergent and my main interests right now are homestuck, no more heroes and animatronics
 
