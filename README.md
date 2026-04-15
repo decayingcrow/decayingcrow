@@ -20,7 +20,7 @@ i use he crow it pronouns and im nonbinary and mega gay for my dumbass boyfriend
 
 im nineteen and i speak english and spanish ok
 
-im neurodivergent and my main interests right now are homestuck, no more heroes and animatronics
+im disabled and neurodivergent and my main interests right now are homestuck, no more heroes and animatronics
 
 im so awesome and cool ok
 
