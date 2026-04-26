@@ -32,6 +32,14 @@ this is my goth lesbian daughter i love her the most
 
 click them to see her toyhou.se profile
 
+i block freely, i block proshippers/darkshippers and anyone who jokes about those things and selfcest enjoyers too.
+
+if i block you, PLEASE dont reach out to my friends asking why. they do not need to get involved ok.
+
+PLUS i DONT owe u an explanation dawg, i dont want to be arguing with a bunch of minors just because i blocked you
+
+but if you want to reach out and complain anyways my discord is decayingcrow and let me know directly
+
 more info abt me below
    
 <p><a href="https://pronouns.cc/@decayingcrow">pronouns.cc</a></p>
