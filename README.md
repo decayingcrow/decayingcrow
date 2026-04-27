@@ -14,31 +14,7 @@
 
 image is a placeholder for now ok i dont have another image on hand, ill finish my profile later
 
-my name is davesprite
-
-i use he crow it pronouns and im nonbinary and mega gay for my dumbass boyfriend
-
-im nineteen and i speak english and spanish ok
-
-im disabled and neurodivergent and my main interests right now are homestuck, no more heroes and animatronics
-
 im so awesome and cool ok
-
-i also draw and really love my ocs
-
-this is my goth lesbian daughter i love her the most
-
-<div align="center"><a href="https://toyhou.se/31705555.katherine"><img src="https://i.ibb.co/qL9y7pgP/115789437-DJ33omvsoq6a9m-B.png" style="width:400px;height:400px;"></div>
-
-click them to see her toyhou.se profile
-
-i block freely, i block proshippers/darkshippers and anyone who jokes about those things and selfcest enjoyers too.
-
-if i block you, PLEASE dont reach out to my friends asking why. they do not need to get involved ok.
-
-PLUS i DONT owe u an explanation dawg, i dont want to be arguing with a bunch of minors just because i blocked you
-
-but if you want to reach out and complain anyways my discord is decayingcrow and let me know directly
 
 more info abt me below
    
