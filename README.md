@@ -2,7 +2,7 @@
 <div align="center"><img src="https://i.ibb.co/SwGfm8HZ/tumblr-adbc8bcaa2ac97eff16ffc90cde41e2f-26fe39b7-400-fliter-x-rays-channel-green-mode-multiply.png" style="width:250px;height:300px;"></div>
 <div align="center">
        ⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
-<div>  　 </div>
+       
 𐂯　 。   davesprite　ᛝ 
    
 he　crow　it　⌣　9teen
