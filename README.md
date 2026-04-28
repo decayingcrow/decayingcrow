@@ -5,7 +5,7 @@
 <div>  　 </div>
 𐂯　 。   davesprite　ᛝ 
    
-he　crow　it　⌣　9teen
+𓏴　he　crow　it　⌣　9teen　◞
    
 fictkin　𝜗　disabled
 <p><a href="https://pronouns.cc/@decayingcrow">extended info</a></p>
