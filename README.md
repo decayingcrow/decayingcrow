@@ -8,6 +8,6 @@
 𓏴　he　crow　it　⌣　9teen　◞
    
 ﹒　fictkin　𝜗　eng　╱　esp　꒷꒦
-<p><a href="https://pronouns.cc/@decayingcrow">extended info</a></p>
+<p><a href="https://pronouns.cc/@decayingcrow">extended info</a>  <a href="https://decayingcrow.atabook.org/">atabook</a></p>
 <div align="center"><img src="https://i.ibb.co/wrgYVQPC/tumblr-36c32e6cc6d06719d0a8f19a1a72cd7e-4a11c517-640-fliter-x-rays-channel-green-mode-normal.png" style="width:500px;height:50px;"></div>
 image credits go to @ priestboy on tumblr
