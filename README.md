@@ -3,7 +3,6 @@ currently redoing this ok come back l8tr
 <div align="center"><img src="https://i.ibb.co/jvTZwYfC/tumblr-801a08572c67f2510c1770886aa6ca16-77dba485-400-fliter-x-rays-channel-green-mode-normal.png" style="width:500px;height:50px;"></div>
 <div>  　 </div>
 <div align="center"><img src="https://i.ibb.co/nsxNy6Hf/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-x-rays-channel-green-mode-normal.png" style="width:200px;height:200px;"></div>
-<div align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&pause=1000&color=970000&center=true&width=435&lines=+%E2%99%AB%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80are+you+man+enough%E2%A0%80%E2%A0%80.+.+.;+%E2%A0%80%E2%A0%80%E2%A0%80to+take+the+blame+for+this%E2%A0%80%E2%A0%80%3F%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
 <div>  　 </div>
 <div align="center"><img src="https://i.ibb.co/jm8vDvN/tumblr-51f587699811ceec1ca3f632416883a5-aee7a67e-1280-fliter-x-rays-channel-green-mode-normal.png" style="width:300px;height:50px;"></div>
 <div>  　 </div>
