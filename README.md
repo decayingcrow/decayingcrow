@@ -1,5 +1,3 @@
-currently redoing this ok come back l8tr
-
 <div align="center"><img src="https://i.ibb.co/CsSfGftf/tumblr-801a08572c67f2510c1770886aa6ca16-77dba485-400-fliter-x-rays-channel-green-mode-normal.png" style="width:500px;height:50px;"></div>
 <div align="center"><img src="https://i.ibb.co/SwGfm8HZ/tumblr-adbc8bcaa2ac97eff16ffc90cde41e2f-26fe39b7-400-fliter-x-rays-channel-green-mode-multiply.png" style="width:250px;height:300px;"></div>
 <div align="center">
