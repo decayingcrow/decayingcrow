@@ -30,6 +30,8 @@ i am sensitive to a LOT of topics and get upset easily, i WILL block you if you 
 
 im in a constant state of anxiety especially when talking to people and it causes me to become nonverbal so i may stop talking mid conversation
 
+i am in a relationship with my awesome fag squad and id appreciate if nobody flirted with me or make any sexual comments
+
 ### IWC
 
 bro strider / dirk, meulin, cronus, hussie, caliborn kins or fans (most of you guys are really weird, im sorry)
