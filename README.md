@@ -62,6 +62,8 @@ if you joke about ANYTHING in my dni like joking about grooming or sa or any oth
 
 if you like any type of stridercest
 
+if you sexualize davesprite (joking or not, its triggering to me)
+
 i DONT owe you guys explanations BTW !!
 
 ok bye
