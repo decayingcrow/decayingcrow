@@ -1,13 +1,69 @@
-<div align="center"><img src="https://i.ibb.co/CsSfGftf/tumblr-801a08572c67f2510c1770886aa6ca16-77dba485-400-fliter-x-rays-channel-green-mode-normal.png" style="width:500px;height:50px;"></div>
-<div align="center"><img src="https://i.ibb.co/SwGfm8HZ/tumblr-adbc8bcaa2ac97eff16ffc90cde41e2f-26fe39b7-400-fliter-x-rays-channel-green-mode-multiply.png" style="width:250px;height:300px;"></div>
-<div align="center">
-       ⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
-<div>  　 </div>
-𐂯　 。   davesprite　ᛝ 
-   
-𓏴　he　crow　it　⌣　9teen　◞
-   
-﹒　artist　𝜗　eng　╱　esp　꒷꒦
-<p>  <a href="https://decayingcrow.atabook.org/">atabook</a>  <a href="https://open.spotify.com/playlist/7Eyf14pwDeQrCQmahXMftL?si=CjSwhQ79S0aI4j7VUcm-5A">playlist</a>  <a href="https://open.spotify.com/playlist/6LZjAR7n64JLsDz6Y7p2FY?si=ez4kArPBT6-DJq5e9j9KDA">playlist 2</a></p>
-<div align="center"><img src="https://i.ibb.co/wrgYVQPC/tumblr-36c32e6cc6d06719d0a8f19a1a72cd7e-4a11c517-640-fliter-x-rays-channel-green-mode-normal.png" style="width:500px;height:50px;"></div>
-image credits go to @ priestboy on tumblr
+redoing this soon</br>
+
+info on me ⤵︎
+
+<details>
+
+<summary>caw caw</summary>
+
+### BASIC INFO
+
+My name is davesprite, i also go by another main name but i pretty much only prefer if friends use it (dont be afraid to ask tho)
+
+i use he/crow/it pronouns but only he/him is fine i dont really gaf what you call me
+
+im an adult (19) with a few mental and physical disabilities so i struggle with a lot of stuff
+
+i am an artist and i draw like once every 3 months or so due to constant burnout but i love drawing for other people, feel free to ask me to draw you something
+
+id prefer if only friends interacted with me but im fine if you want to interact, i dont bite ! im friendly, just ALWAYS iwc okay
+
+if you want to be friends just lmk, (as long as youre at least 15 or 16+) especially adults (hi i need more adult friends guys bmf guys youll get free art)
+
+### MAIN INTERESTS RN
+
+homestuck, animatronic media, no more heroes, osomatsu-san, mlp, and adventure time
+
+### BYI
+
+i am sensitive to a LOT of topics and get upset easily, i WILL block you if you say something i dont like (i block freely)
+
+im in a constant state of anxiety especially when talking to people and it causes me to become nonverbal so i may stop talking mid conversation
+
+### IWC
+
+bro strider / dirk, meulin, cronus, hussie, caliborn kins or fans (most of you guys are really weird, im sorry)
+
+everyone iwc i get scared of people in general
+
+idk what else to add here ok
+
+### DNI
+
+proship, darkship, profic or whatever u guys call yourselves
+
+pedos
+
+selfcest enjoyers / enthusiasts (personally, that stuff was severely ruined for me. if were friends, its ok if you like that stuff its just not something i personally like and i wont bash you for liking it. but HEAVY dni dave x davesprite and dirkhal)
+
+house of puso fans unless were already friends, same as hazbin or helluva boss fans
+
+just dont be weird
+
+# SINCE SO MANY MINORS WANT TO COME ON MY PAGE COMPLAINING AND ASKING WHY I BLOCKED THEM, HERE ARE REASONS WHY I BLOCK PEOPLE:
+
+you make extensive sexual jokes in safe server (especially if youre a minor)
+
+youre a proshipper + if you sit at the protree
+
+you like selfcest and incest and other cests i dont like
+
+if you joke about ANYTHING in my dni like joking about grooming or sa or any other stuff like that
+
+if you like any type of stridercest
+
+i DONT owe you guys explanations BTW !!
+
+ok bye
+
+</details>
