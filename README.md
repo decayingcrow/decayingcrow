@@ -1,10 +1,10 @@
-redoing this soon</br>
+$${\color{#ec9f05} redoing\ this\ soon}$$
 
-info on me ⤵︎
+$${\color{#ec9f05} info\ on\ me\ ⤵︎}$$
 
-<details>
+  <details>
 
-<summary>caw caw</summary>
+<summary>$${\color{#ec9f05} caw\ caw}$$</summary>
 
 ### BASIC INFO
 
