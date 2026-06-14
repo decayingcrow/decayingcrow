@@ -46,7 +46,7 @@ proship, darkship, profic or whatever u guys call yourselves
 
 pedos
 
-selfcest enjoyers / enthusiasts (personally, that stuff was severely ruined for me. if were friends, its ok if you like that stuff its just not something i personally like and i wont bash you for liking it. but HEAVY dni dave x davesprite and dirkhal)
+selfcest / mirrorship enjoyers / enthusiasts (personally, that stuff was severely ruined for me. if were friends, its ok if you like that stuff its just not something i personally like and i wont bash you for liking it. but HEAVY dni dave x davesprite and dirkhal)
 
 house of puso fans unless were already friends, same as hazbin or helluva boss fans
 
