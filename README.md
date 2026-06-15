@@ -1,5 +1,7 @@
 
 <img width="1932" height="900" src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
+
+$${\color{#ff4d00} ❛ \ the\ phoenix \ must \ burn \ to \ emerge \ ❜}$$
 <p align="center"><img width="400" height="400" src="https://i.ibb.co/pj2tNKbn/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-sea-channel-green-mode-color.png" /></p>
 
 $${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\ davesprite,\ crow, \ or \ dave \ ︵}$$
