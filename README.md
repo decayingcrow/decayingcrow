@@ -32,6 +32,8 @@ im in a constant state of anxiety especially when talking to people and it cause
 
 i am in a relationship with my awesome fag squad and id appreciate if nobody flirted with me or make any sexual comments
 
+i guess im considered "woke" ????????? if you think calling out someone who was making grooming jokes to not be funny is woke
+
 ### IWC
 
 bro strider / dirk, meulin, cronus, hussie, caliborn kins or fans (most of you guys are really weird, im sorry)
