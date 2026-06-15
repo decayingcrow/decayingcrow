@@ -1,6 +1,15 @@
-$${\color{#ec9f05} redoing\ this\ soon}$$
 
-$${\color{#ec9f05} info\ on\ me\ ⤵︎}$$
+<img width="1932" height="900" src="https://i.ibb.co/S1vtKsB/tumblr-27dbaff6d098dbd5cce06b4b71393577-6c3c7431-2048-fliter-sea-channel-green-mode-color.png" />
+<p align="center"><img width="400" height="400" src="https://i.ibb.co/pj2tNKbn/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-sea-channel-green-mode-color.png" /></p>
+
+$${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\ davesprite,\ crow, \ or \ dave \ ︵}$$
+$${\color{#ff4d00} ⟢⠀⠀⁺ \ he \ ╱ crow \ ╱ it \ prns \ ◞}$$
+$${\color{#ff4d00} ✦⠀⠀› \ 9teen \ + \ disabled\ ⠀ 𓏏}$$
+$${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
+}$$
+
+<p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
+<img src="https://i.ibb.co/20DQM0Nr/image.png" />
 
   <details>
 
@@ -8,17 +17,13 @@ $${\color{#ec9f05} info\ on\ me\ ⤵︎}$$
 
 ### BASIC INFO
 
-My name is davesprite, i also go by another main name but i pretty much only prefer if friends use it (dont be afraid to ask tho)
-
-i use he/crow/it pronouns but only he/him is fine i dont really gaf what you call me
-
-im an adult (19) with a few mental and physical disabilities so i struggle with a lot of stuff
+i also go by another main name but i pretty much only prefer if friends use it (dont be afraid to ask tho)
 
 i am an artist and i draw like once every 3 months or so due to constant burnout but i love drawing for other people, feel free to ask me to draw you something
 
 id prefer if only friends interacted with me but im fine if you want to interact, i dont bite ! im friendly, just ALWAYS iwc okay
 
-if you want to be friends just lmk, (as long as youre at least 15 or 16+) especially adults (hi i need more adult friends guys bmf guys youll get free art)
+if you want to be friends just lmk, especially adults (hi i need more adult friends guys bmf guys youll get free art)
 
 ### MAIN INTERESTS RN
 
@@ -37,8 +42,6 @@ i guess im considered "woke" ????????? if you think calling out someone who was 
 ### IWC
 
 bro strider / dirk, meulin, cronus, hussie, caliborn kins or fans (most of you guys are really weird, im sorry)
-
-everyone iwc i get scared of people in general
 
 idk what else to add here ok
 
