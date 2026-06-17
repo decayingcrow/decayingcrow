@@ -48,7 +48,7 @@ i guess im considered "woke" ????????? if you think calling out someone who was 
 
 ### IWC
 
-bro strider / dirk, meulin, cronus, hussie, caliborn kins or fans (most of you guys are really weird, im sorry)
+bro strider / dirk, meulin, cronus, hussie, caliborn kins or fans (most of you guys are really weird, im sorry) fictives or anything dont count yall are alright
 
 ### DNI
 
