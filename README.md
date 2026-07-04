@@ -56,6 +56,8 @@ proshippers, darkshippers, profic or whatever you freaks call yourselves
 
 pedos, maps, all that weird shit
 
+blmatsu go away u guys stink go take a shower u incest freaks
+
 selfcest / mirrorship enjoyers (personally, that stuff was severely ruined for me. if were friends, its ok if you like that stuff its just not something i personally like and i wont bash you for liking it. but HEAVY dni dave x davesprite and dirkhal)
 
 ### SINCE SO MANY MINORS WANT TO COME ON MY PAGE COMPLAINING AND ASKING WHY I BLOCKED THEM, HERE ARE REASONS WHY I BLOCK PEOPLE:
