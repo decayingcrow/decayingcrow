@@ -1,4 +1,4 @@
-
+its 4am im going to bed ill finish this later ok
 <img width="1932" height="900" src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div align="center">
@@ -8,7 +8,6 @@
     
 <div align="right">
 
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
@@ -28,9 +27,8 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff4d00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
 
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
+
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
   <p>   <img  align="left" width="45%" height="auto" src="https://i.ibb.co/pj2tNKbn/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-sea-channel-green-mode-color.png" />
@@ -47,5 +45,24 @@ $${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 1
 <div align="center">
 
 <p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
+
+  <p>   <img  align="right" width="45%" height="auto" src="https://i.ibb.co/V0vgmQBL/Untitled871-20260706033130-fliter-red-sunset-with-purple-channel-green-mode-overlay.png" />
+    
+<div align="right">
+
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+
+<div align="center">
+  
+$${\color{#ff4d00} dni}$$<br>
+$${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest/mirrorships \ }$$<br>
+$${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite, \ and \ stridercest}$$<br>
+$${\color{#ff4d00} i \ block \ freely}$$<br>
+
+<p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
+  </div>
 
 <img src="https://i.ibb.co/20DQM0Nr/image.png" />
