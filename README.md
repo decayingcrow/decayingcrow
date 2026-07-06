@@ -58,7 +58,7 @@ $${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 1
 <div align="center">
   
 $${\color{#ff4d00} dni}$$<br>
-$${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest/mirrorships \ }$$<br>
+$${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest╱mirrorships \ }$$<br>
 $${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite,}$$<br>
 $${\color{#ff4d00} and \ stridercest. \ i \ block \ freely}$$<br>
 
