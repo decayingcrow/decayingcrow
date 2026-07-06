@@ -42,7 +42,7 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 $${\color{#ff4d00} davesprite \ ╱ \ dave \ fictionkin, \ dbls \ ok \ to \ int}$$<br>
 $${\color{#ff4d00} i \ draw \ once \ in \ a \ blue \ moon \ due \ to \ constant \ burnout}$$<br>
 $${\color{#ff4d00} in \ a \ constant \ state \ of \ anxiety \ + \ sensitive \ 2 \ a \ lot \ of \ topics}$$<br>
-$${\color{#ff4d00} main \ interests \ are \ homestuck, \ no more heroes \ & \ animatronics}$$<br>
+$${\color{#ff4d00} main \ interests \ are \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
 $${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 10.19.24 \ <3}$$<br>
 <div align="center">
 
