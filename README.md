@@ -1,83 +1,51 @@
 
 <img width="1932" height="900" src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
 
-$${\color{#ff4d00} ❛ \ the\ phoenix \ must \ burn \ to \ emerge \ ❜}$$
-<p align="center"><img width="400" height="400" src="https://i.ibb.co/pj2tNKbn/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-sea-channel-green-mode-color.png" /></p>
+  <p>   <img  align="right" width="45%" height="auto" src="https://i.ibb.co/V0vgmQBL/Untitled871-20260706033130-fliter-red-sunset-with-purple-channel-green-mode-overlay.png" />
+    
+<div align="right">
 
-$${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\ davesprite,\ crow, \ or \ dave \ ︵}$$
-$${\color{#ff4d00} ⟢⠀⠀⁺ \ he \ ╱ crow \ ╱ it \ prns \ ◞}$$
-$${\color{#ff4d00} ✦⠀⠀› \ 9teen \ + \ disabled\ ⠀ 𓏏}$$
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+
+<div align="center">
+  
+$${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\ davesprite \ or \ dave \ ︵}$$<br>
+$${\color{#ff4d00} ⟢⠀⠀⁺ \ he \ ╱ crow \ ╱ it \ prns \ ◞}$$<br>
+$${\color{#ff4d00} ✦⠀⠀› \ 9teen \ + \ disabled\ ⠀ 𓏏}$$<br>
 $${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
-}$$
+}$$<br>
 
+  </div>
+  <div align="center">
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@decayingcrow)⠀ ⠀  ⠀⠀⠀ ⠀ ⠀  ⠀  [atabook](https://decayingcrow.atabook.org/)
+⠀⠀⠀[prns.cc](https://pronouns.cc/@decayingcrow) ‎ ‎ ‎ ‎ ‎ [ata](https://decayingcrow.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎ [straw](https://crowzbonez.straw.page/)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff4d00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff4d00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
+
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+  <p>   <img  align="left" width="45%" height="auto" src="https://i.ibb.co/pj2tNKbn/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-sea-channel-green-mode-color.png" />
+    
+<div align="left">
+
+<div align="center">
+  
+$${\color{#ff4d00} davesprite \ ╱ \ dave \ fictionkin, \ dbls \ ok \ to \ int}$$<br>
+$${\color{#ff4d00} i \ draw \ once \ in \ a \ blue \ moon \ due \ to \ constant \ burnout}$$<br>
+$${\color{#ff4d00} in \ a \ constant \ state \ of \ anxiety \ + \ sensitive \ 2 \ a \ lot \ of \ topics}$$<br>
+$${\color{#ff4d00} main \ interests \ are \ homestuck, \ no more heroes \ & \ animatronics}$$<br>
+$${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 10.19.24 \ <3}$$<br>
+<div align="center">
 
 <p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
+
 <img src="https://i.ibb.co/20DQM0Nr/image.png" />
-
-  <details>
-
-<summary>$${\color{#ff4d00} extra\ info}$$</summary>
-
-### BASIC INFO
-
-i also go by another main name but i pretty much only prefer if friends use it (dont be afraid to ask tho)
-
-i am an artist and i draw like once every 3 months or so due to constant burnout but i love drawing for other people, feel free to ask me to draw you something
-
-id prefer if only friends interacted with me but im fine if you want to interact, i dont bite ! im friendly, just ALWAYS iwc okay
-
-if you want to be friends just lmk, especially adults (hi i need more adult friends guys bmf guys youll get free art)
-
-### MAIN INTERESTS RN
-
-homestuck, animatronic media, no more heroes, osomatsu-san, mlp, and adventure time
-
-### BYI
-
-i am sensitive to a LOT of topics and get upset easily, i WILL block you if you say something i dont like (i block freely)
-
-im in a constant state of anxiety especially when talking to people and it causes me to become nonverbal so i may stop talking mid conversation
-
-i am in a relationship and id appreciate if nobody flirted with me or made any sexual comments
-
-i guess im considered "woke" ????????? if you think calling out someone who was making grooming jokes to not be funny is woke
-
-### IWC
-
-bro strider / dirk, meulin, cronus, hussie, caliborn kins or fans (most of you guys are really weird, im sorry) fictives or anything dont count yall are alright
-
-### DNI
-
-proshippers, darkshippers, profic or whatever you freaks call yourselves
-
-pedos, maps, all that weird shit
-
-blmatsu go away u guys stink go take a shower u incest freaks
-
-selfcest / mirrorship enjoyers (personally, that stuff was severely ruined for me. if were friends, its ok if you like that stuff its just not something i personally like and i wont bash you for liking it. but HEAVY dni dave x davesprite and dirkhal)
-
-### SINCE SO MANY MINORS WANT TO COME ON MY PAGE COMPLAINING AND ASKING WHY I BLOCKED THEM, HERE ARE REASONS WHY I BLOCK PEOPLE:
-
-you make extensive sexual jokes in safe server (especially if youre a minor)
-
-youre a proshipper + if you sit at the protree
-
-you like selfcest and incest and other cests i dont like
-
-if you joke about ANYTHING in my dni like joking about grooming or sa or any other stuff like that
-
-if you like any type of stridercest
-
-if you sexualize davesprite (joking or not, hes a kid)
-
-if you have 18+ dni in your profile
-
-i DONT owe you guys explanations BTW !!
-
-ok bye
-
-</details>
