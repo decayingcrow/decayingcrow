@@ -32,6 +32,9 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
 
+<div align="center">
+<img width="900" height="40" src="https://files.catbox.moe/b7234o.png" /></div>
+
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
   <p>   <img  align="left" width="45%" height="auto" src="https://i.ibb.co/pj2tNKbn/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-sea-channel-green-mode-color.png" />
