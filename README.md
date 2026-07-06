@@ -1,4 +1,4 @@
-its 4am im going to bed ill finish this later ok
+massive wip ok, most images are placeholders
 <img width="1932" height="900" src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div align="center">
