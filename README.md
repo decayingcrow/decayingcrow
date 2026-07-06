@@ -59,8 +59,8 @@ $${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 1
   
 $${\color{#ff4d00} dni}$$<br>
 $${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest/mirrorships \ }$$<br>
-$${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite, \ and \ stridercest}$$<br>
-$${\color{#ff4d00} i \ block \ freely}$$<br>
+$${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite,}$$<br>
+$${\color{#ff4d00} and \ stridercest. \ i \ block \ freely}$$<br>
 
 <p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
   </div>
