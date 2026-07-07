@@ -4,7 +4,7 @@ not mobile friendly sorry guys
 <div align="center">
 <img src="https://i.ibb.co/q3Y9jVL4/IMG-5924.png" /></div>
 
-<div align="center">
+<div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
 
   <p>   <img  align="right" width="45%" height="auto" src="https://i.ibb.co/V0vgmQBL/Untitled871-20260706033130-fliter-red-sunset-with-purple-channel-green-mode-overlay.png" />
