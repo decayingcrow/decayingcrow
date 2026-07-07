@@ -44,7 +44,7 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <div align="center">
   
-$${\color{#ff4d00} heavy \ davesprite \ ╱ \ dave \ fictionkin, \ dbls \ ok \ to \ int}$$<br>
+$${\color{#ff4d00} heavy \ davesprite \ ╱ \ dave \ fictionkin \ ok}$$<br>
 $${\color{#ff4d00} i \ draw \ once \ in \ a \ blue \ moon \ due \ to \ constant \ burnout}$$<br>
 $${\color{#ff4d00} in \ a \ constant \ state \ of \ anxiety \ + \ sensitive \ 2 \ a \ lot \ of \ topics}$$<br>
 $${\color{#ff4d00} main \ interests \ are \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
