@@ -1,4 +1,5 @@
-massive wip ok, most images are placeholders
+massive wip ok, images are placeholders<br>
+not mobile friendly sorry guys
 <img width="1932" height="900" src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
 
 <div align="center">
