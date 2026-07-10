@@ -49,7 +49,8 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <div align="center">
   
-$${\color{#ff4d00} heavy \ davesprite \ ╱ \ dave \ fictionkin \ ok}$$<br>
+$${\color{#ff4d00} heavy \ davesprite \ fictionkin \ and \ a \ sharing \ yumeshipper}$$<br>
+$${\color{#ff4d00} im \ a \ page \ of \ light \ and \ i \ speak \ english \ and \ spanish}$$<br>
 $${\color{#ff4d00} i \ draw \ once \ in \ a \ blue \ moon \ due \ to \ constant \ burnout}$$<br>
 $${\color{#ff4d00} in \ a \ constant \ state \ of \ anxiety \ + \ sensitive \ 2 \ a \ lot \ of \ topics}$$<br>
 $${\color{#ff4d00} main \ interests \ are \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
@@ -72,7 +73,7 @@ $${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 1
 $${\color{#ff4d00} dni}$$<br>
 $${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest╱mirrorships \ }$$<br>
 $${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite,}$$<br>
-$${\color{#ff4d00} and \ stridercest. \ i \ block \ freely}$$<br>
+$${\color{#ff4d00} and \ stridercest. \ i \ block \ and \ hide \ freely}$$<br>
 
 <p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
   </div>
