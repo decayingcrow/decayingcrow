@@ -26,7 +26,7 @@ not mobile friendly sorry guys
 $${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\ davesprite \ or \ dave \ ︵}$$<br>
 $${\color{#ff4d00} ⟢⠀⠀⁺ \ he \ ╱ crow \ ╱ it \ prns \ ◞}$$<br>
 $${\color{#ff4d00} ✦⠀⠀› \ 9teen \ + \ disabled\ ⠀ 𓏏}$$<br>
-$${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
+$${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 }$$<br>
 
   </div>
@@ -49,10 +49,10 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ ALWAYS \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <div align="center">
   
-$${\color{#ff4d00} heavy \ davesprite \ fictionkin \ and \ a \ sharing \ yumeshipper}$$<br>
+$${\color{#ff4d00} heavy \ davesprite \ fictionkin \ and \ a \ yumeshipper}$$<br>
 $${\color{#ff4d00} im \ a \ page \ of \ light \ and \ i \ speak \ english \ and \ spanish}$$<br>
-$${\color{#ff4d00} i \ draw \ once \ in \ a \ blue \ moon \ due \ to \ constant \ burnout}$$<br>
-$${\color{#ff4d00} in \ a \ constant \ state \ of \ anxiety \ + \ sensitive \ 2 \ a \ lot \ of \ topics}$$<br>
+$${\color{#ff4d00} artist \ but \ i \ draw \ once \ in \ a \ blue \ moon \ due \ to \ constant \ burnout}$$<br>
+$${\color{#ff4d00} in \ a \ constant \ state \ of \ anxiety \ and \ sensitive \ to \ a \ lot \ of \ topics}$$<br>
 $${\color{#ff4d00} main \ interests \ are \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
 $${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 10.19.24 \ <3}$$<br>
 <div align="center">
@@ -71,7 +71,7 @@ $${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 1
 <div align="center">
   
 $${\color{#ff4d00} dni}$$<br>
-$${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest╱mirrorships \ }$$<br>
+$${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest╱mirrorships}$$<br>
 $${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite,}$$<br>
 $${\color{#ff4d00} and \ stridercest. \ i \ block \ and \ hide \ freely}$$<br>
 
