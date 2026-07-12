@@ -49,12 +49,10 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <div align="center">
   
-$${\color{#ff4d00} heavy \ davesprite \ fictionkin \ and \ a \ yumeshipper}$$<br>
-$${\color{#ff4d00} im \ a \ page \ of \ light \ and \ i \ speak \ english \ and \ spanish}$$<br>
-$${\color{#ff4d00} artist \ but \ i \ draw \ once \ in \ a \ blue \ moon \ due \ to \ constant \ burnout}$$<br>
-$${\color{#ff4d00} in \ a \ constant \ state \ of \ anxiety \ and \ sensitive \ to \ a \ lot \ of \ topics}$$<br>
-$${\color{#ff4d00} main \ interests \ are \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
-$${\color{#ff4d00} taken \ by \ all \ the \ gays \ in \ the \ storm \ system \ 10.19.24 \ <3}$$<br>
+$${\color{#ff4d00} hvy \ davesprite \ fictkin \ Ⳋ᧙ \ derse \ prince \ 𓎟 \ page \ of \ light \ }$$<br>
+$${\color{#ff4d00} eng \ ╱ \ esp \ ꒷꒦︶ \ artist \  \ 𓏵 \ \ adhd \ + \ anxiety}$$<br>
+$${\color{#ff4d00} interests \ : \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
+$${\color{#ff4d00} the \ storm \ system \ < \ 10 \ .19 \ .24 \ 3}$$<br>
 <div align="center">
 
 <p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
