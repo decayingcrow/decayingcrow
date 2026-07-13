@@ -49,8 +49,8 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <div align="center">
   
-$${\color{#ff4d00} hvy \ davesprite \ fictkin \ Ⳋ᧙ \ derse \ prince \ 𓎟 \ page \ of \ light \ }$$<br>
-$${\color{#ff4d00} eng \ ╱ \ esp \ ꒷꒦︶ \ artist \  \ 𓏵 \ \ adhd \ + \ anxiety}$$<br>
+$${\color{#ff4d00} fictkin \ Ⳋ᧙ \ derse \ prince \ 𓎟 \ page \ of \ light \ }$$<br>
+$${\color{#ff4d00} hispanic \ \ 𓏵 \ \ artist \  \ ⚣ \ \ nonbinary \ ghost \ bird \ freak}$$<br>
 $${\color{#ff4d00} interests \ : \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
 $${\color{#ff4d00} the \ storm \ system \ < \ 10 \ .19 \ .24 \ 3}$$<br>
 <div align="center">
@@ -69,7 +69,7 @@ $${\color{#ff4d00} the \ storm \ system \ < \ 10 \ .19 \ .24 \ 3}$$<br>
 <div align="center">
   
 $${\color{#ff4d00} dni}$$<br>
-$${\color{#ff4d00} all \ the \ basic \ dni \ shit \ + \ proship \ and \ selfcest╱mirrorships}$$<br>
+$${\color{#ff4d00} the \ basic \ dni \ shit \ + \ proship, \ and \ selfcest╱mirrorships \ (friends \ r \ ok)}$$<br>
 $${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite,}$$<br>
 $${\color{#ff4d00} and \ stridercest. \ i \ block \ and \ hide \ freely}$$<br>
 
