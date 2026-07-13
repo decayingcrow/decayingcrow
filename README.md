@@ -69,7 +69,7 @@ $${\color{#ff4d00} the \ storm \ system \ < \ 10 \ .19 \ .24 \ 3}$$<br>
 <div align="center">
   
 $${\color{#ff4d00} dni}$$<br>
-$${\color{#ff4d00} the \ basic \ dni \ shit \ + \ proship, \ and \ selfcest╱mirrorships \ (friends \ r \ ok)}$$<br>
+$${\color{#ff4d00} the \ basic \ dni \ shit \ + \ proship, \ and \ selfcest╱mirrorship \ (friends \ r \ ok)}$$<br>
 $${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite,}$$<br>
 $${\color{#ff4d00} and \ stridercest. \ i \ block \ and \ hide \ freely}$$<br>
 
