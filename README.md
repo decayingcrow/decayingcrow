@@ -32,7 +32,7 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
   </div>
   <div align="center">
 
-⠀⠀⠀[prns.cc](https://pronouns.cc/@decayingcrow) ‎ ‎ ‎ ‎ ‎ [ata](https://decayingcrow.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎ [straw](https://crowzbonez.straw.page/)
+⠀⠀⠀[prns.cc](https://pronouns.cc/@decayingcrow) ‎ ‎ ‎ ‎ ‎ [ata](https://decayingcrow.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎ 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff4d00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
 
