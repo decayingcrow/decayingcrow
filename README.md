@@ -51,29 +51,9 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
   
 $${\color{#ff4d00} fictkin \ Ⳋ᧙ \ derse \ prince \ 𓎟 \ page \ of \ light \ }$$<br>
 $${\color{#ff4d00} hispanic \ \ 𓏵 \ \ artist \  \ ⚣ \ \ nb \ ghost \ bird \ freak}$$<br>
-$${\color{#ff4d00} interests \ : \ homestuck, \ no \ more \ heroes, \ and \ animatronics}$$<br>
 $${\color{#ff4d00} the \ storm \ system \ < \ 10 \ .19 \ .24 \ 3}$$<br>
 <div align="center">
 
 <p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
-
-  <p>   <img  align="right" width="45%" height="auto" src="https://i.ibb.co/V0vgmQBL/Untitled871-20260706033130-fliter-red-sunset-with-purple-channel-green-mode-overlay.png" />
-    
-<div align="right">
-
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-
-<div align="center">
-  
-$${\color{#ff4d00} dni}$$<br>
-$${\color{#ff4d00} basic \ dni \ shit \ + \ proship, \ and \ selfcest╱mirrorship \ (friends \ r \ ok)}$$<br>
-$${\color{#ff4d00} more \ specifically: \ blmatsu, \ dirkhal, \ davexdavesprite,}$$<br>
-$${\color{#ff4d00} and \ stridercest. \ i \ block \ and \ hide \ freely}$$<br>
-
-<p align="center"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
-  </div>
 
 <img src="https://i.ibb.co/20DQM0Nr/image.png" />
