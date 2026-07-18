@@ -49,8 +49,8 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <div align="center">
   
-$${\color{#ff4d00} fictkin \ Ⳋ᧙ \ derse \ prince \ 𓎟 \ page \ of \ light \ }$$<br>
-$${\color{#ff4d00} hispanic \ \ 𓏵 \ \ artist \  \ ⚣ \ \ nb \ ghost \ bird \ freak}$$<br>
+$${\color{#ff4d00} derse \ prince \ 𓎟 \ page \ of \ light \ }$$<br>
+$${\color{#ff4d00} artist \  \ Ⳋ᧙ \ \ ghost \ bird \ freak}$$<br>
 $${\color{#ff4d00} the \ storm \ system \ < \ 10 \ .19 \ .24 \ 3}$$<br>
 <div align="center">
 
