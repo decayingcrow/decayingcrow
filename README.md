@@ -12,7 +12,7 @@ not mobile friendly sorry guys
   
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
 
-  <p>   <img  align="right" width="55%" height="60%" src="https://i.ibb.co/8LLmrxB7/br.png" />
+  <p>   <img  align="right" width="55%" height="65%" src="https://i.ibb.co/8LLmrxB7/br.png" />
     
 <div align="right">
 
