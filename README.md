@@ -1,12 +1,7 @@
 not mobile friendly sorry guys
 <img src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
 <div align="center">
-<img src="https://i.ibb.co/ty88KLc/IMG-5927.png" /></div>
 
-<div align="center">
-  <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  
-  
   ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
   
@@ -37,10 +32,6 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <p align="left"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
 
-
-
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
   <p>   <img  align="left" width="45%" height="auto" src="https://i.ibb.co/pj2tNKbn/tumblr-876ba479e6884b15ce9360329476f193-bd24eb36-400-fliter-sea-channel-green-mode-color.png" />
     
 <div align="left">
