@@ -32,8 +32,6 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ minors \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <p align="left"><img src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /></p>
 
-<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-
   <p>   <img  align="left" width="55%" height="100%" src="https://i.ibb.co/xtkJXyRV/uhh-homestuck-fliter-teal-lightgreen-channel-green-mode-overlay-removebg-preview.png" />
     
 <div align="left">
