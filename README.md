@@ -20,7 +20,7 @@ not mobile friendly sorry guys
 $${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\ davesprite \ or \ dave \ ︵}$$<br>
 $${\color{#ff4d00} ⟢⠀⠀⁺ \ he \ ╱ crow \ ╱ it \ prns \ ◞}$$<br>
 $${\color{#ff4d00} ✦⠀⠀› \ 9teen \ + \ disabled\ ⠀ 𓏏}$$<br>
-$${\color{#ff4d00} ⋆⠀⠀₊ \ always \ iwc \ ︶ \ -15 \ dniuf \ ꒱
+$${\color{#ff4d00} ⋆⠀⠀₊ \ minors \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 }$$<br>
 
   </div>
