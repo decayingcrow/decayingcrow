@@ -1,4 +1,3 @@
-not mobile friendly sorry guys
 <img src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
 <div align="center">
 
