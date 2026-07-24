@@ -34,7 +34,7 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ minors \ iwc \ ︶ \ -15 \ dniuf \ ꒱
 
 <img src="https://i.ibb.co/M5DhH7H0/IMG-5927.png">
 
-  <p>   <img  align="left" width="50%" height="100%" src="https://i.ibb.co/xtkJXyRV/uhh-homestuck-fliter-teal-lightgreen-channel-green-mode-overlay-removebg-preview.png" />
+<img  align="left" width="50%" height="100%" src="https://i.ibb.co/xtkJXyRV/uhh-homestuck-fliter-teal-lightgreen-channel-green-mode-overlay-removebg-preview.png" />
 
 <div align="center">
 
