@@ -16,10 +16,10 @@
 
 <div align="center">
   
-$${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\ davesprite \ or \ dave \ ︵}$$<br>
-$${\color{#ff4d00} ⟢⠀⠀⁺ \ he \ ╱ crow \ ╱ it \ prns \ ◞}$$<br>
-$${\color{#ff4d00} ✦⠀⠀› \ 9teen \ + \ disabled\ ⠀ 𓏏}$$<br>
-$${\color{#ff4d00} ⋆⠀⠀₊ \ minors \ iwc \ ︶ \ -15 \ dniuf \ ꒱
+$${\color{#ff4d00} ⊹⠀ㅤ࣭⠀\space davesprite \space or \space dave \ ︵}$$<br>
+$${\color{#ff4d00} ⟢⠀⠀⁺ \space he \space ╱ crow \space ╱ it \space prns \space ◞}$$<br>
+$${\color{#ff4d00} ✦⠀⠀› \space 9teen \space + \space disabled \space ⠀ 𓏏}$$<br>
+$${\color{#ff4d00} ⋆⠀⠀₊ \space minors \space iwc \space ︶ \space -15 \space dniuf \space ꒱
 }$$<br>
 
   </div>
@@ -47,10 +47,10 @@ $${\color{#ff4d00} ⋆⠀⠀₊ \ minors \ iwc \ ︶ \ -15 \ dniuf \ ꒱
   <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
   <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
   
-$${\color{#ff4d00} derse \ prince \ 𓎟 \ page \ of \ light \ }$$<br>
-$${\color{#ff4d00} artist \  \ Ⳋ᧙ \ \ ghost \ bird \ freak}$$<br>
-$${\color{#ff4d00} eng \  \ ╱ \ \ esp \ \ speaker}$$<br>
-$${\color{#ff4d00} the \ storm \ system \ < \ 10 \ .19 \ .24 \ 3}$$<br>
+$${\color{#ff4d00} derse \space prince \space 𓎟 \space page \space of \space light}$$<br>
+$${\color{#ff4d00} artist \space  \space Ⳋ᧙ \space \space ghost \space bird \space freak}$$<br>
+$${\color{#ff4d00} eng \space  \space ╱ \space \space esp \space \space speaker}$$<br>
+$${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 \space .24 \space 3}$$<br>
 <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 <div align="center">
 
