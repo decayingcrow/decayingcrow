@@ -1,4 +1,4 @@
-WIP RN
+WIP - revamping rn and trying to fix formatting
 
 <img src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
 
