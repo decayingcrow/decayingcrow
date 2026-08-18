@@ -2,15 +2,15 @@ WIP RN
 
 <img src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
 
-<img src="https://i.ibb.co/gqWqRh0/Untitled873-20260818034124.png" align="left" width="400" height="100%">
+<img src="https://i.ibb.co/gqWqRh0/Untitled873-20260818034124.png" align="left" width="375" height="100%">
 
 
 <div align="center">
   
   ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
-‎
+<div align="right"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
+  
 $${\color{#ff4d00}\space he \space ╱ crow \space ╱ it}$$<br>
 $${\color{#ff4d00}\space nineteen \space \space 𓎟 \space \space disabled \space}$$<br>
 $${\color{#ff4d00}\space artist \space ︶ eng \space  \space ╱ \space \space esp \space \space}$$<br>
