@@ -9,7 +9,7 @@ WIP RN
   
   ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   
-<div align="right"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
+  <div align="right"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
   
 $${\color{#ff4d00}\space he \space ╱ crow \space ╱ it}$$<br>
 $${\color{#ff4d00}\space nineteen \space \space 𓎟 \space \space disabled \space}$$<br>
@@ -26,7 +26,7 @@ $${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 
 
 <div align="center">
 
-<img width="35%" height="35%" src="https://camo.githubusercontent.com/1e4d75d17a4cb4d5ef0a00b52ee8349ea7d6320fd3adc0e29cd298a6a3d4e859/68747470733a2f2f692e6962622e636f2f505a3848306e37582f494d472d383333322e6a7067" />
+<img width="45%" height="45%" src="https://camo.githubusercontent.com/1e4d75d17a4cb4d5ef0a00b52ee8349ea7d6320fd3adc0e29cd298a6a3d4e859/68747470733a2f2f692e6962622e636f2f505a3848306e37582f494d472d383333322e6a7067" />
 
 [@pt-hall-of-media](https://github.com/pt-hall-of-media)
 
