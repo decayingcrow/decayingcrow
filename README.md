@@ -17,7 +17,8 @@ $${\color{#ff4d00}\space artist \space ︶ eng \space  \space ╱ \space \space 
 $${\color{#ff4d00} derse \space prince \space + \space page \space of \space light}$$<br>
 $${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 \space .24 \space 3}$$<br>
 
-
+<div align="center">
+  
   ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ 
 
 <img width="30%" height="30%" src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /> 
