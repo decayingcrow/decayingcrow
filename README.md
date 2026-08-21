@@ -30,6 +30,9 @@ $${\color{#ff4d00}ponytown's \space davesprite}$$<br>
 
   $${\color{#ff4d00}mostly \space offtab \space or \space afk \space so \space id \space recommend \space if \space you \space whispered \space to \space interact}$$<br>
   $${\color{#ff4d00}c+h \space is \space ok \space and \space always \space welcome \space even \space if \space im \space with \space friends}$$<br>
+    <div>　　　　</div>
+  $${\color{#ff4d00}id \space appreciate \space it \space if \space nobody \space copied \space my \space ponies, \space im \space ok \space with \space inspo \space tho.}$$<br>
+  $${\color{#ff4d00}i \space cant \space stop \space you \space from \space copying \space but \space ill \space most \space likely \space block \space you \space if \space you \space do}$$<br>
   <div>　　　　</div>
   $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you \space or \space accept \space friend \space reqs \space if \space we \space just \space met}$$<br>
   $${\color{#ff4d00}i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
