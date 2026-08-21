@@ -5,7 +5,7 @@ WIP - revamping rn and trying to fix formatting
 <div align="center">　　　　　　　　<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
 <div>　　　　</div>
 
-<img src="https://i.ibb.co/gqWqRh0/Untitled873-20260818034124.png" align="left" width="375" height="100%">
+<img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="left" width="65%" height="100%">
 
 
 <div align="center">
@@ -33,6 +33,8 @@ $${\color{#ffded4} the \space storm \space system \space < \space 10 \space .19 
 [@pt-hall-of-media](https://github.com/pt-hall-of-media)
 
 <details>
+
+<summary>$${\color{#ff4d00}ext}$$</summary>
 
   i slept with yo daddy
 </details>
