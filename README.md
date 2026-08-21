@@ -1,7 +1,3 @@
-WIP - revamping rn and trying to fix formatting
-
-<img src="https://i.ibb.co/7JMf5fmZ/image-1.png" />
-
 <div align="center">　　　　　　　　<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%A0%80%E2%A0%80%E2%9D%9D%E2%A0%80%E2%A0%80the+phoenix+must+burn+to+emerge%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
 <div>　　　　</div>
 
@@ -21,7 +17,7 @@ $${\color{#ffded4} the \space storm \space system \space < \space 10 \space .19 
   
   ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ 
 
-<img width="30%" height="30%" src="https://i.ibb.co/s9ptWt8f/tumblr-88ab6641bebdaee8524780d3db33a109-0654cae0-400-fliter-sea-channel-green-mode-color.png" /> 
+<img width="30%" height="30%" src="https://i.ibb.co/BHZtHVSk/output-smallpngtools.png" /> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff4d00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
 
@@ -38,5 +34,3 @@ $${\color{#ffded4} the \space storm \space system \space < \space 10 \space .19 
 
   i slept with yo daddy
 </details>
-
-<img src="https://i.ibb.co/20DQM0Nr/image.png" />
