@@ -8,7 +8,6 @@
   
   ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true) 
   
-$${\color{#ff4d00}\space he \space ╱ crow \space ╱ it}$$<br>
 $${\color{#ff4d00}\space nineteen \space \space 𓎟 \space \space disabled \space}$$<br>
 $${\color{#ff4d00}\space artist \space ︶ eng \space  \space ╱ \space \space esp \space \space}$$<br>
 $${\color{#ff4d00} derse \space prince \space + \space page \space of \space light}$$<br>
