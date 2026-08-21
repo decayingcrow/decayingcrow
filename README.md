@@ -9,10 +9,10 @@
   ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true) 
   
 $${\color{#ff4d00}\space he \space ╱ crow \space ╱ it}$$<br>
-$${\color{#ff7539}\space nineteen \space \space 𓎟 \space \space disabled \space}$$<br>
-$${\color{#ff9D73}\space artist \space ︶ eng \space  \space ╱ \space \space esp \space \space}$$<br>
-$${\color{#ffcfba} derse \space prince \space + \space page \space of \space light}$$<br>
-$${\color{#ffded4} the \space storm \space system \space < \space 10 \space .19 \space .24 \space 3}$$<br>
+$${\color{#ff4d00}\space nineteen \space \space 𓎟 \space \space disabled \space}$$<br>
+$${\color{#ff4d00}\space artist \space ︶ eng \space  \space ╱ \space \space esp \space \space}$$<br>
+$${\color{#ff4d00} derse \space prince \space + \space page \space of \space light}$$<br>
+$${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 \space .24 \space 3}$$<br>
 <div align="center">
   
   ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ 
