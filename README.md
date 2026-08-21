@@ -29,11 +29,11 @@ $${\color{#ff4d00}ponytown's \space davesprite}$$<br>
 <summary>$${\color{#ff4d00}ext}$$</summary>
 
   $${\color{#ff4d00}mostly \space offtab \space or \space afk \space so \space id \space recommend \space if \space you \space whispered \space to \space interact}$$<br>
+  $${\color{#ff4d00}c+h \space is \space ok \space and \space always \space welcome \space even \space if \space im \space with \space friends}$$<br>
   $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you \space or \space accept \space friend \space reqs \space if \space we \space just \space met}$$<br>
   $${\color{#ff4d00}i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
 <div>　　　　</div>
 $${\color{#ff4d00}the \space only \space dnis \space i \space really \space have \space on \space pt \space are; \space proshippers, \space darkshippers, \space and \space endo \space systems}$$<br>
 $${\color{#ff4d00}i \space block \space and \space hide \space freely \space ok}$$<br>
-$${\color{#ff4d00}im \space going \space to \space bed, \space ill \space add \space more \space later}$$<br>
 
 </details>
