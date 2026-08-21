@@ -25,6 +25,7 @@ $${\color{#ffded4} the \space storm \space system \space < \space 10 \space .19 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff4d00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
 
+<div>　　　　</div>
 <div align="center">
 
 <img width="45%" height="45%" src="https://camo.githubusercontent.com/1e4d75d17a4cb4d5ef0a00b52ee8349ea7d6320fd3adc0e29cd298a6a3d4e859/68747470733a2f2f692e6962622e636f2f505a3848306e37582f494d472d383333322e6a7067" />
