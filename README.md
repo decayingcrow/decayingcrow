@@ -19,18 +19,22 @@ $${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 
 
 <img width="30%" height="30%" src="https://i.ibb.co/BHZtHVSk/output-smallpngtools.png" /> 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff4d00&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=zfg62trznmgg4vj9izv3223wg&redirect=true)
-
 <div>　　　　</div>
 <div align="center">
 
-<img width="45%" height="45%" src="https://camo.githubusercontent.com/1e4d75d17a4cb4d5ef0a00b52ee8349ea7d6320fd3adc0e29cd298a6a3d4e859/68747470733a2f2f692e6962622e636f2f505a3848306e37582f494d472d383333322e6a7067" />
-
+$${\color{#ff4d00}ponytown's \space davesprite}$$<br>
 [@pt-hall-of-media](https://github.com/pt-hall-of-media)
 
 <details>
 
 <summary>$${\color{#ff4d00}ext}$$</summary>
 
-  i slept with yo daddy
+  $${\color{#ff4d00}mostly \space offtab \space or \space afk \space so \space id \space recommend \space if \space you \space whispered \space to \space interact}$$<br>
+  $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you \space or \space accept \space friend \space reqs \space if \space we \space just \space met}$$<br>
+  $${\color{#ff4d00}i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
+<div>　　　　</div>
+$${\color{#ff4d00}the \space only \space dnis \space i \space really \space have \space on \space pt \space are; \space proshippers, \space darkshippers, \space and \space endo \space systems}$$<br>
+$${\color{#ff4d00}i \space block \space and \space hide \space freely \space ok}$$<br>
+$${\color{#ff4d00}im \space going \space to \space bed, \space ill \space add \space more \space later}$$<br>
+
 </details>
