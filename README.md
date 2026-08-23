@@ -37,7 +37,9 @@ $${\color{#ff4d00}ponytown's \space davesprite}$$<br>
   $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you \space or \space accept \space friend \space reqs \space if \space we \space just \space met}$$<br>
   $${\color{#ff4d00}i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
 <div>　　　　</div>
-$${\color{#ff4d00}the \space only \space dnis \space i \space really \space have \space on \space pt \space are; \space proshippers, \space darkshippers, \space and \space endo \space systems}$$<br>
+$${\color{#ff4d00}the \space only \space dnis \space i \space really \space have \space on \space pt \space are; \space proshippers, \space darkshippers, \space and \space endo \space systems.}$$<br>
+$${\color{#ff4d00}iwec \space selfcest \space ╱ \space mirrorshippers, \space ive \space mostly \space had \space bad \space exeperiences \space with \space you \space guys}$$<br>
+$${\color{#ff4d00}and \space i \space really \space specifically \space dislike \space davecest \space or \space dirkcest \space rn}$$<br>
 $${\color{#ff4d00}i \space block \space and \space hide \space freely \space ok}$$<br>
 
 </details>
