@@ -43,3 +43,17 @@ $${\color{#ff4d00}and \space i \space really \space specifically \space dislike 
 $${\color{#ff4d00}i \space block \space and \space hide \space freely \space ok}$$<br>
 
 </details>
+
+<details>
+
+<summary>$${\color{#ff4d00}stamps}$$</summary>
+
+random bullshit me and my friends made
+
+<a href="https://github.com/Nirilith"><img src="https://i.ibb.co/4BZR77D/455xwz2.png" /></a>
+<a href="https://github.com/Nirilith"><img src="https://i.ibb.co/r2ZRGLPt/hereshowilltortureyoudavidstamp.png" /></a>
+<a href="https://github.com/Nirilith"><img src="https://i.ibb.co/9HGKLmyc/kpn0xjj.png" /></a>
+<img src="https://i.ibb.co/x8LPwb5F/tumblr-216f55b2124489c1a3ab65b682bfb289-170e869e-100-1-1.png" />
+
+
+</details>
