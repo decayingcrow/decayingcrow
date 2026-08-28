@@ -34,7 +34,7 @@ $${\color{#ff4d00}ponytown's \space davesprite \space and \space certified \spac
   $${\color{#ff4d00}id \space appreciate \space it \space if \space nobody \space copied \space my \space ponies, \space im \space ok \space with \space inspo \space tho.}$$<br>
   $${\color{#ff4d00}i \space cant \space stop \space you \space from \space copying \space but \space ill \space most \space likely \space block \space you \space if \space you \space do}$$<br>
   <div>　　　　</div>
-  $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you \space or \space accept \space friend \space reqs \space if \space we \space just \space met}$$<br>
+  $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you \space or \space accept \space friend \space reqs}$$<br>
   $${\color{#ff4d00}i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
 <div>　　　　</div>
 $${\color{#ff4d00}the \space only \space dnis \space i \space really \space have \space on \space pt \space are; \space proshippers, \space darkshippers, \space and \space endo \space systems.}$$<br>
