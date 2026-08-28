@@ -29,7 +29,7 @@ $${\color{#ff4d00}ponytown's \space davesprite \space and \space certified \spac
 <summary>$${\color{#ff4d00}ext}$$</summary>
 
   $${\color{#ff4d00}mostly \space offtab \space or \space afk \space so \space id \space recommend \space if \space you \space whispered \space to \space interact}$$<br>
-  $${\color{#ff4d00}c+h \space is \space ok \space and \space always \space welcome \space even \space if \space im \space with \space friends}$$<br>
+  $${\color{#ff4d00}c+h \space is \space encouraged \space and \space always \space welcome \space even \space if \space im \space with \space friends}$$<br>
     <div>　　　　</div>
   $${\color{#ff4d00}id \space appreciate \space it \space if \space nobody \space copied \space my \space ponies, \space im \space ok \space with \space inspo \space tho.}$$<br>
   $${\color{#ff4d00}i \space cant \space stop \space you \space from \space copying \space but \space ill \space most \space likely \space block \space you \space if \space you \space do}$$<br>
