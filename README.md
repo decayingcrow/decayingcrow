@@ -21,7 +21,7 @@ $${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 
 <div>　　　　</div>
 <div align="center">
 
-$${\color{#ff4d00}ponytown's \space davesprite \space and \space certified \space yearner}$$<br>
+$${\color{#ff4d00}ponytown's \space davesprite \space and \space chronic \space yearner}$$<br>
 [@pt-hall-of-media](https://github.com/pt-hall-of-media)
 
 <details>
