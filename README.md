@@ -1,4 +1,4 @@
-<div align="center">　　　　　　　　<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%9D%9D%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80do+you+believe+in+love+at+first+sight%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%3F%E2%A0%80.%E2%A0%80.%E2%A0%80.;%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80do+you+believe+in+fate%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%3F%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
+<div align="center">　　　　　　　　<a href="https://open.spotify.com/track/5lVMIRbSbQAvpNV3M33uBW?si=8f88be99f07c4946"><img src="https://readme-typing-svg.demolab.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%9D%9D%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80do+you+believe+in+love+at+first+sight%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%3F%E2%A0%80.%E2%A0%80.%E2%A0%80.;%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80do+you+believe+in+fate%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%3F%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
 <div>　　　　</div>
 
 <img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="left" width="65%" height="100%">
