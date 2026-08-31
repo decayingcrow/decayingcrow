@@ -28,18 +28,16 @@ $${\color{#ff4d00}ponytown's \space davesprite \space and \space chronic \space 
 
 <summary>$${\color{#ff4d00}ext}$$</summary>
 
-  $${\color{#ff4d00}mostly \space offtab \space or \space afk \space so \space id \space recommend \space if \space you \space whispered \space to \space interact}$$<br>
-  $${\color{#ff4d00}c+h \space is \space ok \space and \space always \space welcome \space even \space if \space im \space with \space friends}$$<br>
+  $${\color{#ff4d00}c+h \space is \space ok \space and \space always \space welcome, \space no \space need \space to \space ask}$$<br>
     <div>　　　　</div>
   $${\color{#ff4d00}id \space appreciate \space it \space if \space nobody \space copied \space my \space ponies, \space im \space ok \space with \space inspo \space tho.}$$<br>
   $${\color{#ff4d00}i \space cant \space stop \space you \space from \space copying \space but \space ill \space most \space likely \space block \space you \space if \space you \space do}$$<br>
   <div>　　　　</div>
-  $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you \space or \space accept \space friend \space reqs}$$<br>
-  $${\color{#ff4d00}i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
+  $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you}$$<br>
+  $${\color{#ff4d00}or \space accept \space reqs. \space i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
 <div>　　　　</div>
-$${\color{#ff4d00}the \space only \space dnis \space i \space really \space have \space on \space pt \space are; \space proshippers, \space darkshippers, \space and \space endo \space systems.}$$<br>
-$${\color{#ff4d00}iwec \space selfcest \space ╱ \space mirrorshippers, \space ive \space mostly \space had \space bad \space exeperiences \space with \space you \space guys}$$<br>
-$${\color{#ff4d00}and \space i \space really \space specifically \space dislike \space davecest \space or \space dirkcest \space rn}$$<br>
+$${\color{#ff4d00}only \space dnis \space i \space really \space have \space on \space here \space are: \space proshippers \space ╱ \space darkshippers, \space and \space endo \space systems.}$$<br>
+$${\color{#ff4d00}iwec \space selfcest \space ╱ \space mirrorshippers. \space i \space really \space specifically \space dislike \space davecest \space and \space dirkcest \space rn}$$<br>
 $${\color{#ff4d00}i \space block \space and \space hide \space freely \space ok}$$<br>
 
 </details>
