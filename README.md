@@ -37,7 +37,7 @@ $${\color{#ff4d00}ponytown's \space davesprite \space and \space chronic \space 
   $${\color{#ff4d00}or \space accept \space reqs. \space i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
 <div>　　　　</div>
 $${\color{#ff4d00}only \space dnis \space i \space really \space have \space on \space here \space are: \space proshippers \space ╱ \space darkshippers, \space and \space endo \space systems.}$$<br>
-$${\color{#ff4d00}iwec \space selfcest \space ╱ \space mirrorshippers. \space i \space really \space specifically \space hate \space davecest \space and \space dirkcest}$$<br>
+$${\color{#ff4d00}iwec \space selfcest \space ╱ \space mirrorshippers. \space i \space kinda \space really \space hate \space that \space stuff \space but \space i \space wont \space attack \space you \space if \space you \space do. \space friends \space are \space ok \space to \space like \space it}$$<br>
 $${\color{#ff4d00}i \space block \space and \space hide \space freely \space ok}$$<br>
 
 </details>
