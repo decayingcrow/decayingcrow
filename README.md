@@ -10,8 +10,8 @@
   
 ${\textsf{\color{#ff4d00}nineteen⠀⠀𓎟⠀⠀disabled}}$<br>
 ${\textsf{\color{#ff4d00}artist⠀︶⠀eng⠀╱⠀esp}}$<br>
-$${\color{#ff4d00} derse \space prince \space + \space page \space of \space light}$$<br>
-$${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 \space .24 \space 3}$$<br>
+${\textsf{\color{#ff4d00}derse⠀prince⠀+⠀page⠀of⠀light}}$<br>
+${\textsf{\color{#ff4d00}the⠀storm⠀system⠀<⠀10.19.24⠀3}}$<br>
 <div align="center">
   
   ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ 
@@ -21,30 +21,30 @@ $${\color{#ff4d00} the \space storm \space system \space < \space 10 \space .19 
 <div>　　　　</div>
 <div align="center">
 
-$${\color{#ff4d00}ponytown's \space davesprite \space and \space jadesprite's \space biggest \space fan}$$<br>
+${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest⠀fan}}$<br>
 [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@kaotown](https://github.com/kaotown)
 
 <details>
 
-<summary>$${\color{#ff4d00}ext}$$</summary>
+<summary>${\textsf{\color{#ff4d00}ext}}$</summary>
 
-  $${\color{#ff4d00}c+h \space is \space ok \space and \space always \space welcome, \space no \space need \space to \space ask}$$<br>
+  ${\textsf{\color{#ff4d00}c+h⠀is⠀ok⠀and⠀always⠀welcome,⠀no⠀need⠀to⠀ask}}$<br>
     <div>　　　　</div>
-  $${\color{#ff4d00}id \space appreciate \space it \space if \space nobody \space copied \space my \space ponies, \space im \space ok \space with \space inspo \space tho.}$$<br>
-  $${\color{#ff4d00}i \space cant \space stop \space you \space from \space copying \space but \space ill \space most \space likely \space block \space you \space if \space you \space do}$$<br>
-  <div>　　　　</div>
-  $${\color{#ff4d00}i \space dont \space mind \space interacting \space with \space minors \space but \space i \space might \space not \space friend \space you}$$<br>
-  $${\color{#ff4d00}or \space accept \space reqs. \space i \space prefer \space not \space friending \space those \space under \space 15 \space or \space 16}$$<br>
-<div>　　　　</div>
-$${\color{#ff4d00}only \space dnis \space i \space really \space have \space on \space here \space are: \space proshippers \space ╱ \space darkshippers, \space and \space endo \space systems.}$$<br>
-$${\color{#ff4d00}iwec \space selfcest \space ╱ \space mirrorshippers. \space i \space kinda \space really \space hate \space that \space stuff \space but \space i \space wont \space attack \space you \space if \space you \space do. \space friends \space are \space ok \space to \space like \space it}$$<br>
-$${\color{#ff4d00}i \space block \space and \space hide \space freely \space ok}$$<br>
+  ${\textsf{\color{#ff4d00}id⠀appreciate⠀it⠀if⠀nobody⠀copied⠀my⠀ponies,⠀im⠀ok⠀with⠀inspo⠀tho.}}$<br>
+  ${\textsf{\color{#ff4d00}i⠀cant⠀stop⠀you⠀from⠀copying⠀but⠀ill⠀most⠀likely⠀block⠀you⠀if⠀you⠀do}}$<br>
+    <div>　　　　</div>
+    ${\textsf{\color{#ff4d00}i⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
+  ${\textsf{\color{#ff4d00}or⠀accept⠀reqs.⠀i⠀prefer⠀not⠀friending⠀those⠀under⠀15⠀or⠀16}}$<br>
+    <div>　　　　</div>
+${\textsf{\color{#ff4d00}only⠀dnis⠀i⠀really⠀have⠀on⠀here⠀are:⠀proshippers⠀╱⠀darkshippers,⠀and⠀endo⠀systems.}}$<br>
+${\textsf{\color{#ff4d00}iwec⠀selfcest⠀╱⠀mirrorshippers,⠀i⠀kinda⠀hate⠀it⠀but⠀i⠀wont⠀attack⠀you⠀if⠀you⠀do.}}$<br>
+${\textsf{\color{#ff4d00}friends⠀are⠀ok⠀to⠀like⠀it.⠀i⠀block⠀and⠀hide⠀freely⠀ok}}$<br>
 
 </details>
 
 <details>
 
-<summary>$${\color{#ff4d00}stamps}$$</summary>
+<summary>${\textsf{\color{#ff4d00}stamps}}$</summary>
 
 random bullshit me and my friends made
 
