@@ -36,9 +36,9 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
     ${\textsf{\color{#ff4d00}i⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
   ${\textsf{\color{#ff4d00}or⠀accept⠀reqs.⠀i⠀prefer⠀not⠀friending⠀those⠀under⠀15⠀or⠀16}}$<br>
     <div>　　　　</div>
-${\textsf{\color{#ff4d00}only⠀dnis⠀i⠀really⠀have⠀on⠀here⠀are:⠀proshippers⠀╱⠀darkshippers,⠀and⠀endo⠀systems.}}$<br>
-${\textsf{\color{#ff4d00}iwec⠀selfcest⠀╱⠀mirrorshippers,⠀i⠀kinda⠀hate⠀it⠀but⠀i⠀wont⠀attack⠀you⠀if⠀you⠀do.}}$<br>
-${\textsf{\color{#ff4d00}friends⠀are⠀ok⠀to⠀like⠀it.⠀i⠀block⠀and⠀hide⠀freely⠀ok}}$<br>
+${\textsf{\color{#ff4d00}i⠀curate⠀my⠀online⠀experience⠀and⠀i⠀block⠀and⠀hide⠀freely.}}$<br>
+${\textsf{\color{#ff4d00}i⠀mostly⠀block⠀pro⠀╱⠀darkshippers.⠀im⠀rlly⠀iffy⠀with⠀selfcest⠀╱⠀mirrorshippers}}$<br>
+${\textsf{\color{#ff4d00}⠀i⠀kinda⠀hate⠀it⠀but⠀i⠀wont⠀attack⠀you⠀if⠀you⠀do,⠀friends⠀are⠀ok⠀to⠀like⠀it.}}$<br>
 
 </details>
 
