@@ -16,7 +16,7 @@ ${\textsf{\color{#ff4d00}the⠀storm⠀system⠀<⠀10.19.24⠀3}}$<br>
   
   ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ 
 
-<img width="30%" height="30%" src="https://i.ibb.co/BHZtHVSk/output-smallpngtools.png" /> 
+<a href="https://homestuck.com/005788"><img width="30%" height="30%" src="https://i.ibb.co/BHZtHVSk/output-smallpngtools.png" /> 
 
 <div>　　　　</div>
 <div align="center">
