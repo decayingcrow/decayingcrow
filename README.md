@@ -6,7 +6,7 @@
 
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true) 
+
   
 ${\textsf{\color{#ff4d00}nineteen⠀⠀𓎟⠀⠀disabled}}$<br>
 ${\textsf{\color{#ff4d00}artist⠀︶⠀eng⠀╱⠀esp}}$<br>
