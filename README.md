@@ -37,7 +37,7 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
   ${\textsf{\color{#ff4d00}or⠀accept⠀reqs.⠀i⠀prefer⠀not⠀friending⠀those⠀under⠀15⠀or⠀16}}$<br>
     <div>　　　　</div>
 ${\textsf{\color{#ff4d00}i⠀curate⠀my⠀online⠀experience⠀and⠀i⠀block⠀and⠀hide⠀freely.}}$<br>
-${\textsf{\color{#ff4d00}i⠀mostly⠀block⠀pro⠀╱⠀darkshippers.⠀im⠀rlly⠀iffy⠀with⠀selfcest⠀╱⠀mirrorshippers}}$<br>
+${\textsf{\color{#ff4d00}i⠀mostly⠀block⠀pro⠀╱⠀darkshippers⠀and⠀im⠀super⠀iffy⠀with⠀selfcest⠀╱⠀mirrorships}}$<br>
 ${\textsf{\color{#ff4d00}⠀i⠀kinda⠀hate⠀it⠀but⠀i⠀wont⠀attack⠀you⠀if⠀you⠀do,⠀friends⠀are⠀ok⠀to⠀like⠀it.}}$<br>
 
 </details>
