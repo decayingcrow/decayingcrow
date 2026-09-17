@@ -29,6 +29,7 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
 <summary>${\textsf{\color{#ff4d00}ext}}$</summary>
 
   ${\textsf{\color{#ff4d00}c+h⠀is⠀ok⠀and⠀always⠀welcome,⠀no⠀need⠀to⠀ask}}$<br>
+  ${\textsf{\color{#ff4d00}even⠀if⠀im⠀with⠀friends,⠀most⠀are⠀ok⠀with⠀it}}$<br>
     <div>　　　　</div>
   ${\textsf{\color{#ff4d00}id⠀appreciate⠀it⠀if⠀nobody⠀copied⠀my⠀ponies,⠀im⠀ok⠀with⠀inspo⠀tho.}}$<br>
   ${\textsf{\color{#ff4d00}i⠀cant⠀stop⠀you⠀from⠀copying⠀but⠀ill⠀most⠀likely⠀block⠀you⠀if⠀you⠀do}}$<br>
@@ -37,8 +38,8 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
   ${\textsf{\color{#ff4d00}or⠀accept⠀reqs.⠀i⠀prefer⠀not⠀friending⠀those⠀under⠀15⠀or⠀16}}$<br>
     <div>　　　　</div>
 ${\textsf{\color{#ff4d00}i⠀curate⠀my⠀online⠀experience⠀and⠀i⠀block⠀and⠀hide⠀freely.}}$<br>
-${\textsf{\color{#ff4d00}i⠀mostly⠀block⠀pro⠀╱⠀darkshippers⠀and⠀im⠀super⠀iffy⠀with⠀selfcest⠀╱⠀mirrorships}}$<br>
-${\textsf{\color{#ff4d00}⠀i⠀kinda⠀hate⠀it⠀but⠀i⠀wont⠀attack⠀you⠀if⠀you⠀do,⠀friends⠀are⠀ok⠀to⠀like⠀it.}}$<br>
+${\textsf{\color{#ff4d00}i⠀mostly⠀block⠀pro⠀╱⠀darkshippers⠀and⠀im⠀also⠀super⠀iffy⠀about}}$<br>
+${\textsf{\color{#ff4d00}selfcest⠀╱⠀mirrorships⠀(⠀friends⠀are⠀excluded⠀)}}$<br>
 
 </details>
 
