@@ -1,24 +1,15 @@
-<div align="center">　　　　　　　　<a href="https://open.spotify.com/track/5lVMIRbSbQAvpNV3M33uBW?si=8f88be99f07c4946"><img src="https://readme-typing-svg.demolab.com?font=Georgia&size=15&pause=1000&color=FF4D00&width=435&lines=%E2%9D%9D%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80do+you+believe+in+love+at+first+sight%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%3F%E2%A0%80.%E2%A0%80.%E2%A0%80.;%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80do+you+believe+in+fate%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%3F%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%9D%9E" alt="Typing SVG" /></a>
-<div>　　　　</div>
-
-<a href="https://www.pinterest.com/dud_dub/_created/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="left" width="65%" height="100%">
-
-
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true) 
+${\textsf{\color{#ff4d00}The}}$ ${\textsf{\color{#e22600}Knight}}$ ${\textsf{\color{#d41200}of}}$ ${\textsf{\color{#D10000}Time}}$<br>
+${\textsf{\color{#ff4d00}"⠀caw}}$ ${\textsf{\color{#e22600}caw}}$ ${\textsf{\color{#d41200}motherfuckers⠀"}}$<br>
+ <div> ‎‎  ‎‎  ‎‎ </div>
   
-${\textsf{\color{#ff4d00}nineteen⠀⠀𓎟⠀⠀disabled}}$<br>
-${\textsf{\color{#ff4d00}artist⠀︶⠀eng⠀╱⠀esp}}$<br>
-${\textsf{\color{#ff4d00}derse⠀prince⠀+⠀page⠀of⠀light}}$<br>
-${\textsf{\color{#ff4d00}the⠀storm⠀system⠀<⠀10.19.24⠀3}}$<br>
-<div align="center">
+![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   
-  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ 
+<a href="https://www.pinterest.com/dud_dub/_created/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="65%" height="100%">
 
-<a href="https://homestuck.com/005788"><img width="30%" height="30%" src="https://i.ibb.co/BHZtHVSk/output-smallpngtools.png" /> 
+ [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/)
 
-<div>　　　　</div>
 <div align="center">
 
 ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest⠀fan}}$<br>
