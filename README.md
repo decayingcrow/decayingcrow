@@ -22,7 +22,7 @@ ${\textsf{\color{#ff4d00}the⠀storm⠀system⠀<⠀10.19.24⠀3}}$<br>
 <div align="center">
 
 ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest⠀fan}}$<br>
-[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@kaotown](https://github.com/kaotown)
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@daggerstruckmage](https://github.com/daggerstruckmage) [@kaotown](https://github.com/kaotown)
 
 <details>
 
