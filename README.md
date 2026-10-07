@@ -1,9 +1,5 @@
 <div align="center">
-  
-${\textsf{\color{#ff4d00}The}}$ ${\textsf{\color{#e22600}Knight}}$ ${\textsf{\color{#d41200}of}}$ ${\textsf{\color{#D10000}Time}}$<br>
-${\textsf{\color{#ff4d00}"⠀caw}}$ ${\textsf{\color{#e22600}caw}}$ ${\textsf{\color{#d41200}motherfuckers⠀"}}$<br>
- <div> ‎‎  ‎‎  ‎‎ </div>
-  
+
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   
 <a href="https://www.pinterest.com/dud_dub/_created/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="65%" height="100%">
