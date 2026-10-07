@@ -21,7 +21,7 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
   ${\textsf{\color{#ff4d00}id⠀appreciate⠀it⠀if⠀nobody⠀copied⠀my⠀ponies,⠀im⠀ok⠀with⠀inspo⠀tho.}}$<br>
   ${\textsf{\color{#ff4d00}i⠀cant⠀stop⠀you⠀from⠀copying⠀but⠀ill⠀most⠀likely⠀block⠀you⠀if⠀you⠀do}}$<br>
     <div>　　　　</div>
-    ${\textsf{\color{#ff4d00}i⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
+    ${\textsf{\color{#ff4d00}im an adult and⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
   ${\textsf{\color{#ff4d00}or⠀accept⠀reqs.⠀i⠀prefer⠀not⠀friending⠀those⠀under⠀15⠀or⠀16}}$<br>
     <div>　　　　</div>
 ${\textsf{\color{#ff4d00}i⠀curate⠀my⠀online⠀experience⠀and⠀i⠀block⠀and⠀hide⠀freely.}}$<br>
