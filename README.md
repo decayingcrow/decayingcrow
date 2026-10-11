@@ -22,6 +22,7 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
   ${\textsf{\color{#ff4d00}i⠀cant⠀stop⠀you⠀from⠀copying⠀but⠀ill⠀most⠀likely⠀block⠀you⠀if⠀you⠀do}}$<br>
     <div>　　　　</div>
     ${\textsf{\color{#ff4d00}im⠀an⠀adult and⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
+    ${\textsf{\color{#ff4d00}if youre at least younger than 15 or 16}}$<br>
     <div>　　　　</div>
 
 </details>
