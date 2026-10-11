@@ -4,7 +4,7 @@
   
 <a href="https://www.pinterest.com/dud_dub/_created/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="65%" height="100%">
 
- [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/)
+ [info](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/)
 
 <div align="center">
 
