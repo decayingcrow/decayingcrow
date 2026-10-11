@@ -23,9 +23,6 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
     <div>　　　　</div>
     ${\textsf{\color{#ff4d00}im⠀an⠀adult and⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
     <div>　　　　</div>
-${\textsf{\color{#ff4d00}i⠀curate⠀my⠀online⠀experience⠀and⠀i⠀block⠀and⠀hide⠀freely.}}$<br>
-${\textsf{\color{#ff4d00}i⠀mostly⠀block⠀pro⠀╱⠀darkshippers⠀and⠀im⠀also⠀super⠀iffy⠀about}}$<br>
-${\textsf{\color{#ff4d00}selfcest⠀╱⠀mirrorships⠀(⠀friends⠀are⠀excluded⠀)}}$<br>
 
 </details>
 
