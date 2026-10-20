@@ -9,7 +9,7 @@
 <div align="center">
 
 ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest⠀fan}}$<br>
-[♡](https://github.com/pt-hall-of-media) [♡](https://github.com/daggerstruckmage) [♡](https://github.com/kaotown)
+[₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/kaotown)
 
 <details>
 
