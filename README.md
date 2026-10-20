@@ -26,17 +26,3 @@ ${\textsf{\color{#ff4d00}ponytown's⠀davesprite⠀and⠀jadesprite's⠀biggest�
     <div>　　　　</div>
 
 </details>
-
-<details>
-
-<summary>${\textsf{\color{#ff4d00}stamps}}$</summary>
-
-random bullshit me and my friends made
-
-<a href="https://github.com/Nirilith"><img src="https://i.ibb.co/4BZR77D/455xwz2.png" /></a>
-<a href="https://github.com/Nirilith"><img src="https://i.ibb.co/r2ZRGLPt/hereshowilltortureyoudavidstamp.png" /></a>
-<a href="https://github.com/Nirilith"><img src="https://i.ibb.co/9HGKLmyc/kpn0xjj.png" /></a>
-<img src="https://i.ibb.co/x8LPwb5F/tumblr-216f55b2124489c1a3ab65b682bfb289-170e869e-100-1-1.png" />
-
-
-</details>
