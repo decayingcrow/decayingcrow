@@ -26,3 +26,11 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
     <div>　　　　</div>
 
 </details>
+
+<details>
+
+<summary>${\textsf{\color{#ff4d00}art}}$</summary>
+
+  <img src="https://i.ibb.co/FLpGkrpF/Screenshot-2026-11-03-232208.png" align="center" width="65%" height="100%">
+
+</details>
