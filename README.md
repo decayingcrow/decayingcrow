@@ -29,8 +29,10 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
 
 <details>
 
-<summary>${\textsf{\color{#ff4d00}art}}$</summary>
+<summary>${\textsf{\color{#ff4d00}my⠀art}}$</summary>
 
   <img src="https://i.ibb.co/FLpGkrpF/Screenshot-2026-11-03-232208.png" align="center" width="65%" height="100%">
+<div>　　　　</div>
+  ${\textsf{\color{#ff4d00}me⠀and⠀the⠀bad⠀bitch⠀i⠀pulled⠀by⠀being⠀autistic}}$<br>
 
 </details>
