@@ -15,7 +15,7 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
 
 <summary>${\textsf{\color{#ff4d00}ext}}$</summary>
 
-  ${\textsf{\color{#ff4d00}c+h⠀is⠀ok⠀and⠀always⠀welcome,⠀no⠀need⠀to⠀ask}}$<br>
+  ${\textsf{\color{#ff4d00}c+h⠀is⠀ok,⠀i⠀dont⠀mind}}$<br>
   
   <div>　　　　</div>
   ${\textsf{\color{#ff4d00}i⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
