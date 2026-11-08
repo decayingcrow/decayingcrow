@@ -13,6 +13,8 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
 
 <summary>${\textsf{\color{#ff4d00}my⠀art}}$</summary>
 
+<details>
+
   <div>　　　　</div>
   <img src="https://i.ibb.co/FLpGkrpF/Screenshot-2026-11-03-232208.png" align="center" width="65%" height="100%">
 <div>　　　　</div>
