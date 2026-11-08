@@ -15,7 +15,7 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
 
 <summary>${\textsf{\color{#ff4d00}ext}}$</summary>
 
-  ${\textsf{\color{#ff4d00}c+h⠀is⠀ok⠀and⠀always⠀welcome,⠀no⠀need⠀to⠀ask}}$<br>
+  ${\textsf{\color{#ff4d00}c+h⠀is⠀ok⠀and⠀always⠀welcome,⠀no⠀need⠀to⠀ask}}$
     <div>　　　　</div>
   ${\textsf{\color{#ff4d00}id⠀appreciate⠀it⠀if⠀nobody⠀copied⠀my⠀ponies,⠀im⠀ok⠀with⠀inspo⠀tho.}}$<br>
   ${\textsf{\color{#ff4d00}i⠀cant⠀stop⠀you⠀from⠀copying⠀but⠀ill⠀most⠀likely⠀block⠀you⠀if⠀you⠀do}}$<br>
