@@ -15,6 +15,7 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
 
 <summary>${\textsf{\color{#ff4d00}ext}}$</summary>
 
+  <div>　　　　</div>
   ${\textsf{\color{#ff4d00}c+h⠀is⠀ok,⠀i⠀dont⠀mind}}$<br>
   
   <div>　　　　</div>
@@ -27,6 +28,7 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
 
 <summary>${\textsf{\color{#ff4d00}my⠀art}}$</summary>
 
+  <div>　　　　</div>
   <img src="https://i.ibb.co/FLpGkrpF/Screenshot-2026-11-03-232208.png" align="center" width="65%" height="100%">
 <div>　　　　</div>
   ${\textsf{\color{#ff4d00}me⠀and⠀the⠀bad⠀bitch⠀i⠀pulled⠀by⠀being⠀autistic}}$<br>
