@@ -21,7 +21,7 @@ ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀bigge
   ${\textsf{\color{#ff4d00}i⠀cant⠀stop⠀you⠀from⠀copying⠀but⠀ill⠀most⠀likely⠀block⠀you⠀if⠀you⠀do}}$<br>
     <div>　　　　</div>
     ${\textsf{\color{#ff4d00}i⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
-    ${\textsf{\color{#ff4d00}if⠀youre⠀at⠀least⠀younger⠀than 15⠀or⠀16}}$<br>
+    ${\textsf{\color{#ff4d00}if⠀youre⠀at⠀least⠀younger⠀than⠀15⠀or⠀16}}$<br>
     <div>　　　　</div>
 
 </details>
