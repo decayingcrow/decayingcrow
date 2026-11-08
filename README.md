@@ -11,21 +11,6 @@
 ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀biggest⠀fan}}$<br>
 [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
 
-<details>
-
-<summary>${\textsf{\color{#ff4d00}ext}}$</summary>
-
-  <div>　　　　</div>
-  ${\textsf{\color{#ff4d00}c+h⠀is⠀ok,⠀i⠀dont⠀mind}}$<br>
-  
-  <div>　　　　</div>
-  ${\textsf{\color{#ff4d00}i⠀dont⠀mind⠀interacting⠀with⠀minors⠀but⠀i⠀might⠀not⠀friend⠀you}}$<br>
-  ${\textsf{\color{#ff4d00}if⠀youre⠀at⠀least⠀younger⠀than⠀15⠀or⠀16}}$<br>
-  <div>　　　　</div>
-</details>
-
-<details>
-
 <summary>${\textsf{\color{#ff4d00}my⠀art}}$</summary>
 
   <div>　　　　</div>
