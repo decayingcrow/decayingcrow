@@ -11,10 +11,9 @@
 ${\textsf{\color{#ff4d00}pony⠀town's⠀davesprite⠀and⠀jadesprite's⠀biggest⠀fan}}$<br>
 [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
 
-<summary>${\textsf{\color{#ff4d00}my⠀art}}$</summary>
-
 <details>
-
+  
+<summary>${\textsf{\color{#ff4d00}my⠀art}}$</summary>
   <div>　　　　</div>
   <img src="https://i.ibb.co/FLpGkrpF/Screenshot-2026-11-03-232208.png" align="center" width="65%" height="100%">
 <div>　　　　</div>
