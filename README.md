@@ -2,7 +2,7 @@
   
 ${\textsf{\color{#EB7F31}The}}$ ${\textsf{\color{#E45742}Knight}}$ ${\textsf{\color{#B93636}of}}$ ${\textsf{\color{#972828}Time}}$<br>
 
-${\textsf{\color{#EB7F31}Dersite}}$ ${\textsf{\color{#E45742}Prince}}$ ${\textsf{\color{#DFF1F1}of}}$ ${\textsf{\color{#F5F5F5}Wonderland}}$
+${\textsf{\color{#EB7F31}Dersite}}$ ${\textsf{\color{#E45742}Knight}}$ ${\textsf{\color{#B93636}of}}$ ${\textsf{\color{#972828}Time}}$
 
 ${\textsf{\color{#EB7F31}"⠀It}}$ ${\textsf{\color{#AECFD6}was}}$ ${\textsf{\color{#BBD5DA}my}}$ ${\textsf{\color{#BBD5DA}duty}}$ ${\textsf{\color{#DFF1F1}and}}$
  <div> ‎‎  ‎‎  ‎‎ </div>
