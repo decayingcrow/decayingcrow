@@ -2,7 +2,7 @@
   
 ${\textsf{\color{#f2a400}" hey "}}$
 
-[﹒](https://homestuck.com/005789)
+[ ݂ ](https://homestuck.com/005789)
 
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   
