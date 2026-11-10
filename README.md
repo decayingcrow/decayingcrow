@@ -1,7 +1,5 @@
 <div align="center">
   
-${\textsf{\color{#f2a400}The Page of Light}}$<br>
-
 ${\textsf{\color{#f2a400}" hey "}}$<br>
 
  <div> ‎‎  ‎‎  ‎‎ </div>
