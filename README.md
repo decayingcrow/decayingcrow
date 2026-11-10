@@ -1,6 +1,6 @@
 <div align="center">
   
-${\textsf{\color{#f2a400}" hey "}}$![](https://homestuck.com/005789)
+${\textsf{\color{#f2a400}" hey "}}$
 
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   
@@ -12,4 +12,5 @@ ${\textsf{\color{#f2a400}" hey "}}$![](https://homestuck.com/005789)
 
 
 ${\textsf{\color{#EB7F31}Pony town's davesprite and jadesprite's biggest fan}}$<br>
+
 [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
