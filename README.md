@@ -2,7 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=EB7F31&label=nest+visitors&abbreviated=true)
 
-${\textsf{\color{#EB7F31}" hey "}}$
+${\textsf{\color{#EB7F31}" hey "}}$<br>
+
+${\textsf{\color{#EB7F31}c+h is ok}}$
   
 <a href="https://www.pinterest.com/pin/796292777912308383/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="70%" height="100%">
 
