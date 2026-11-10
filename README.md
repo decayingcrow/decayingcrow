@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=decayingcrow&color=f2a400&label=nest+visitors&abbreviated=true)
 
 ${\textsf{\color{#f2a400}" hey "}}$
   
