@@ -3,7 +3,7 @@
 ${\textsf{\color{#f2a400}The Page of Light}}$<br>
 
 ${\textsf{\color{#1f9400}JADESPRITE: dave?}}$<br>
-${\textsf{\color{#f2a400}DAVESPRITE: hey}}$<br>
+
  <div> ‎‎  ‎‎  ‎‎ </div>
 
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
