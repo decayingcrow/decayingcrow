@@ -1,8 +1,8 @@
 <div align="center">
   
-${\textsf{\color{#EB7F31}The}}$ ${\textsf{\color{#E45742}Knight}}$ ${\textsf{\color{#B93636}of}}$ ${\textsf{\color{#972828}Time}}$<br>
+${\textsf{\color{#EB7F31}The}}$ ${\textsf{\color{#EB7F31}Knight}}$ ${\textsf{\color{#EB7F31}of}}$ ${\textsf{\color{#EB7F31}Time}}$<br>
 
-${\textsf{\color{#EB7F31}"⠀caw}}$ ${\textsf{\color{#E45742}caw}}$ ${\textsf{\color{#B93636}motherfuckers⠀"}}$
+${\textsf{\color{#EB7F31}"⠀caw}}$ ${\textsf{\color{#EB7F31}caw}}$ ${\textsf{\color{#EB7F31}motherfuckers⠀"}}$
  <div> ‎‎  ‎‎  ‎‎ </div>
 
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
@@ -14,5 +14,5 @@ ${\textsf{\color{#EB7F31}"⠀caw}}$ ${\textsf{\color{#E45742}caw}}$ ${\textsf{\c
 <div align="center">
 
 
-${\textsf{\color{#EB7F31}Pony town's}}$ ${\textsf{\color{#E45742}davesprite}}$ ${\textsf{\color{#B93636}and jadesprite's}}$ ${\textsf{\color{#972828}biggest fan}}$<br>
+${\textsf{\color{#EB7F31}Pony town's}}$ ${\textsf{\color{#EB7F31}davesprite}}$ ${\textsf{\color{#EB7F31}and jadesprite's}}$ ${\textsf{\color{#EB7F31}biggest fan}}$<br>
 [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
