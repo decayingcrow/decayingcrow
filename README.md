@@ -4,7 +4,7 @@ ${\textsf{\color{#f2a400}" hey "}}$![](https://homestuck.com/005789)
 
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
   
-<a href="https://www.pinterest.com/dud_dub/_created/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="65%" height="100%">
+<a href="https://www.pinterest.com/dud_dub/_created/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="100%" height="100%">
 
  [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/)
 
