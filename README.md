@@ -4,7 +4,7 @@
 
 ${\textsf{\color{#EB7F31}" hey "}}$
   
-<a href="https://www.pinterest.com/dud_dub/_created/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="70%" height="100%">
+<a href="https://www.pinterest.com/pin/796292777912308383/"><img src="https://i.ibb.co/1GRnrNsX/Untitled874-20260821035037.png" align="center" width="70%" height="100%">
 
  [prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/)
 
