@@ -1,8 +1,9 @@
 <div align="center">
   
-${\textsf{\color{#EB7F31}The}}$ ${\textsf{\color{#EB7F31}Page}}$ ${\textsf{\color{#EB7F31}of}}$ ${\textsf{\color{#EB7F31}Light}}$<br>
+${\textsf{\color{#f2a400}The Page of Light}}$<br>
 
-${\textsf{\color{#EB7F31}"⠀caw}}$ ${\textsf{\color{#EB7F31}caw}}$ ${\textsf{\color{#EB7F31}motherfuckers⠀"}}$
+${\textsf{\color{#1f9400}JADESPRITE: dave?}}$<br>
+${\textsf{\color{#f2a400}DAVESPRITE: hey}}$<br>
  <div> ‎‎  ‎‎  ‎‎ </div>
 
 ![](https://komarev.com/ghpvc/?username=decayingcrow&color=orange&label=nest+visitors&abbreviated=true)
