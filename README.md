@@ -11,6 +11,6 @@ ${\textsf{\color{#f2a400}" hey "}}$
 <div align="center">
 
 
-${\textsf{\color{#EB7F31}Pony town's davesprite and jadesprite's biggest fan}}$<br>
+${\textsf{\color{#EB7F31}pony town's davesprite and jadesprite's biggest fan}}$<br>
 
 [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
