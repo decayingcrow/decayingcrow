@@ -19,7 +19,7 @@ ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎20 ‎�
 ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎eng ‎‎ ‎‎‎ ‎‎‎ ╱ ‎‎ ‎‎‎ ‎‎‎ esp ‎‎ ‎‎‎ ‎‎‎ 𓈒‎‎‎ ‎‎ ‎‎‎ ‎‎‎ c+h ‎‎ ‎‎‎ ‎‎‎ is ‎‎ ‎‎‎ ‎‎‎ ok}}$<br>
 
    
- ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎[prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎[wip](https://crowzbonez.straw.page/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) 
+ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎[prns.cc](https://pronouns.cc/@decayingcrow) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎[wip](https://crowzbonez.straw.page/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [ata](https://decayingcrow.atabook.org/) 
 </p>
 
 <p align="center">  
