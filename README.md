@@ -29,5 +29,5 @@ ${\textsf{\color{#EB7F31} ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎eng ‎
 
 <div align="center">
    
-${\textsf{\color{#EB7F31}pony towns's davesprite and jadesprite's biggest fan}}$ ‎‎ ‎‎‎ ‎‎‎ [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
+${\textsf{\color{#EB7F31}pony town's davesprite and jadesprite's biggest fan}}$ ‎‎ ‎‎‎ ‎‎‎ [₁](https://github.com/pt-hall-of-media) [₂](https://github.com/daggerstruckmage) [₃](https://github.com/THE-TEMPIST) [₄](https://github.com/pt-everypony) [₅](https://github.com/kaotown)
 </div>
